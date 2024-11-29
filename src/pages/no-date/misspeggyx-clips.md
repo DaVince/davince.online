@@ -1,6 +1,6 @@
 % MISSPEGGYx clips
 
-If you happened to this page, then welcome! I collect MISSPEGGYx clips here and organize them according to various themes! When I got enough clips for a theme, they be turned into some nice edits for my [PEGGYx's Kitchen YouTube channel](https://www.youtube.com/@PEGGYsKitchen)!
+If you happened to stumble across this page, then welcome! I collect MISSPEGGYx clips here and organize them according to various themes! When I got enough clips for a theme, they be turned into some nice edits for my [PEGGYx's Kitchen YouTube channel](https://www.youtube.com/@PEGGYsKitchen)!
 
 # Sow noises
 
@@ -91,6 +91,7 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 # Model reveals & Big Moments!
 
 * Silent Hill [PEGGY MAKES PARTNER!](https://www.twitch.tv/misspeggyx/clip/BlueTemperedPlumberTBCheesePull-1jbrWz8Nfd3SbpJ9)
+* [GO WHITE GIRL GO in new hoodie & hairstyle!](https://www.twitch.tv/misspeggyx/clip/FrailGlamorousFiddleheadsSaltBae-mdGO9sZO2NKCGKS6)
 
 
 # Peggy is a bat/brat/vampire
