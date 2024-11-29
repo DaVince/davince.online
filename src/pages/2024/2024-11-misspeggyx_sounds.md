@@ -66,6 +66,7 @@ I'd like for the community to help me group these together and give 'em appropri
 * The Mortuary Assistant [MORE AWAWAWA](https://www.twitch.tv/misspeggyx/clip/AbnegateToughAppleTheRinger-7Klh09Rb2Pyl6meB)
 * The Mortuary Assistant [Tumble dryer](https://www.twitch.tv/misspeggyx/clip/UninterestedAmazonianPancakeNotLikeThis-7kqcRjlueb-YVlSb)
 * The Mortuary Assistant [Quiet laugh squeaks](https://www.twitch.tv/misspeggyx/clip/SquareSpoopyClipsmomKappaRoss-KKFR72IRMvXqK-ZX)
+* The Mortuary Assistant [Troll noises](https://www.twitch.tv/misspeggyx/clip/PreciousDirtyWrenDeIlluminati-5Xdyxyh6yJmIVfGh)
 
 
 ## Other sources

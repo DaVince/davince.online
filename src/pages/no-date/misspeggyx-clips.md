@@ -31,6 +31,8 @@ Check 2024-11-misspeggyx_sounds.md on the website!
 * Deus Ex [DEUS SEX](https://www.twitch.tv/misspeggyx/clip/HealthyInspiringChipmunkRiPepperonis-IhTic4w1OSB1OPaH?filter=clips&range=all&sort=time)
 * Silent Hill 2 [Mold Girl ASMR](https://www.twitch.tv/misspeggyx/clip/NaiveTangentialWatercressBCWarrior-TUQsov-6uQtW7iuN)
 * The Mortuary Assistant [The support team has done it bad this time...](https://www.twitch.tv/misspeggyx/clip/TangibleSweetSoybeanDatBoi-8QsE4O1EIzAtzl00)
+* The Mortuary Assistant ["I need instructions for fucking!"](https://www.twitch.tv/misspeggyx/clip/CredulousGorgeousFalconDeIlluminati-Vn-yAiOVmN5hJAzR)
+* The Mortuary Assistant [Peggy the piss collector](https://www.twitch.tv/misspeggyx/clip/SpineyAmusedDragonfruitCclamChamp-H7vz8WD2noylemhH)
 
 # Mommy Voice
 
@@ -99,6 +101,7 @@ Check 2024-11-misspeggyx_sounds.md on the website!
 # Peggy is a bat/brat/vampire
 
 * Thief [Why do you always think I'm a bat?](https://www.twitch.tv/misspeggyx/clip/CrypticRelievedDolphinCmonBruh-B1cjnoJbyIO04TfU?filter=clips&range=all&sort=time)
+* The Mortuary Assistant [She is NOT flat!!!](https://www.twitch.tv/misspeggyx/clip/FriendlyAnimatedHabaneroBudBlast-egajABPbZWl5nOjH)
 
 
 # Lewd travelling cat girl
