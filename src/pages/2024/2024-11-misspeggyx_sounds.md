@@ -62,13 +62,18 @@ I'd like for the community to help me group these together and give 'em appropri
 * The Beacon's End [Seagurl sounds](https://clips.twitch.tv/MotionlessAlertKoupreyDerp-gm6EKTLdOs7HvzHq){target="_blank"}
 * Silent Hill 2 [Mold Girl ASMR + laugh](https://www.twitch.tv/misspeggyx/clip/NaiveTangentialWatercressBCWarrior-TUQsov-6uQtW7iuN){target="_blank"}
 * Sauna stream [Witch Laughter](https://www.twitch.tv/misspeggyx/clip/OptimisticBlazingPoultryResidentSleeper-9Qy36X1ZLBGoMb5r?filter=clips&range=all&sort=time){target="_blank"}
-* The Mortuary Assistant [Awawawa](https://www.twitch.tv/misspeggyx/clip/CulturedFuriousCockroachTTours-POmEVKGBJ9XBPNLY)
-* The Mortuary Assistant [MORE AWAWAWA](https://www.twitch.tv/misspeggyx/clip/AbnegateToughAppleTheRinger-7Klh09Rb2Pyl6meB)
-* The Mortuary Assistant [Tumble dryer](https://www.twitch.tv/misspeggyx/clip/UninterestedAmazonianPancakeNotLikeThis-7kqcRjlueb-YVlSb)
-* The Mortuary Assistant [Quiet laugh squeaks](https://www.twitch.tv/misspeggyx/clip/SquareSpoopyClipsmomKappaRoss-KKFR72IRMvXqK-ZX)
-* The Mortuary Assistant [Troll noises](https://www.twitch.tv/misspeggyx/clip/PreciousDirtyWrenDeIlluminati-5Xdyxyh6yJmIVfGh)
+* The Mortuary Assistant [Awawawa](https://www.twitch.tv/misspeggyx/clip/CulturedFuriousCockroachTTours-POmEVKGBJ9XBPNLY){target="_blank"}
+* The Mortuary Assistant [MORE AWAWAWA](https://www.twitch.tv/misspeggyx/clip/AbnegateToughAppleTheRinger-7Klh09Rb2Pyl6meB){target="_blank"}
+* The Mortuary Assistant [Tumble dryer](https://www.twitch.tv/misspeggyx/clip/UninterestedAmazonianPancakeNotLikeThis-7kqcRjlueb-YVlSb){target="_blank"}
+* The Mortuary Assistant [Quiet laugh squeaks](https://www.twitch.tv/misspeggyx/clip/SquareSpoopyClipsmomKappaRoss-KKFR72IRMvXqK-ZX){target="_blank"}
+* The Mortuary Assistant [Troll noises](https://www.twitch.tv/misspeggyx/clip/PreciousDirtyWrenDeIlluminati-5Xdyxyh6yJmIVfGh){target="_blank"}
 
 
 ## Other sources
 
 * Haymaxn: sent a motherlode of videos! Check [these Discord messages](https://discord.com/channels/1081142021944770631/1149689081949851712/1306338545518121092){target="_blank"}.
+
+
+## To find
+
+* Haymaxn: "there's also a folder of hiccups from Crow Country stream but i'm pretty sure there was a clip"

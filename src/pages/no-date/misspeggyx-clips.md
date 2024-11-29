@@ -4,13 +4,7 @@ If you happened to this page, then welcome! I collect MISSPEGGYx clips here and 
 
 # Sow noises
 
-Check 2024-11-misspeggyx_sounds.md on the website!
-
-### To find
-
-* Haymaxn: there's also a folder of hiccups from Crow Country stream but i'm pretty sure there was a clip
-* Azu: There's a dolphin noise in the normal fishing game stream too
-
+Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 
 # snusk
 
@@ -41,6 +35,7 @@ Check 2024-11-misspeggyx_sounds.md on the website!
 * [You feeling sick? Lemme give you tummy rubs](https://www.twitch.tv/misspeggyx/clip/GrotesqueCuteFrogMVGame-HoqUNMhpHW0lChNb?filter=clips&range=7d&sort=time)
 * Lego Piranha [Are you a good part?](https://www.twitch.tv/misspeggyx/clip/OptimisticSourDelicataCharlieBitMe-lzIWiPeYsO5yrGRc?filter=clips&range=all&sort=time)
 * Morrowind [I know you wanna open for me](https://www.twitch.tv/misspeggyx/clip/ChillyAmusedShingleArsonNoSexy-zJkLqs227IcOrUPw?filter=clips&range=all&sort=time)
+* The Mortuary Assistant [I guess you are my little pogchamp...](https://www.twitch.tv/misspeggyx/clip/ColdYawningLasagnaWoofer--BenaUoF6Fp7fZBG)
 
 
 # Funni moments
@@ -112,8 +107,8 @@ Check 2024-11-misspeggyx_sounds.md on the website!
 
 # Swedish With Peggy
 
-* The Beacon'd End [Äckelpäckel (something yucky)](https://www.twitch.tv/misspeggyx/clip/SavoryGiftedGarlicDuDudu-PRh4CK7Cv26qqkg0)
-* [Viper](https://www.twitch.tv/misspeggyx/clip/PoorCorrectOrcaKappaWealth-Gfy9_JTcHmILoN8T)
+* The Beacon's End [Äckelpäckel (something yucky)](https://www.twitch.tv/misspeggyx/clip/SavoryGiftedGarlicDuDudu-PRh4CK7Cv26qqkg0)
+* The Mortuary Assistant [Viper](https://www.twitch.tv/misspeggyx/clip/PoorCorrectOrcaKappaWealth-Gfy9_JTcHmILoN8T)
 
 # ADHD/autism moments
 
@@ -138,6 +133,7 @@ Check 2024-11-misspeggyx_sounds.md on the website!
 # Misc
 
 * MOTHERED [Attention: don't.](https://www.twitch.tv/misspeggyx/clip/PerfectTenderReubenNomNom-WA-InmDlC9mq1nOE?filter=clips&range=all&sort=time)
+* The Mortuary Assistant [No hot single demons in her area...](https://www.twitch.tv/misspeggyx/clip/ClearSassyKleeWoofer-x-GZMdjbGfAjQBBt)
 
 
 # Classic Peggy memes
