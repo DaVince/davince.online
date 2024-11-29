@@ -3,4 +3,4 @@
 source .env
 
 cd dist
-rsync --progress -r . $SSH_URL
+rsync --progress -r -L . $SSH_URL
