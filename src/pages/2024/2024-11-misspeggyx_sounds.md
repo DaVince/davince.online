@@ -17,13 +17,14 @@ I'd like for the community to help me group these together and give 'em appropri
 * Thief [3/10 burp](https://www.twitch.tv/misspeggyx/clip/CredulousGiftedClipsmomDxCat-mqRp2P5x38qXnTr6){target="_blank"}
 * [Sauna stream dolphin noises (Thanks BaronMcChicken)](https://clips.twitch.tv/CleanPeacefulSashimiUWot-eF21142o8dTwzYtl){target="_blank"}
 * Black Mesa ["Beating her meat" live ooohghghghghhg](https://www.twitch.tv/misspeggyx/clip/MiniatureRelatedNigiriPhilosoraptor-svyvrwxVsUTPEWTJ){target="_blank"}
-* [Vulululu slurp](https://www.twitch.tv/misspeggyx/clip/CrepuscularPlacidBatteryCorgiDerp-pi9aIOOTQk_0ZeD0){target="_blank"}
-* [(worm) Wooo wlulululul wee!](https://www.twitch.tv/misspeggyx/clip/PolishedResourcefulMuleHassaanChop-qTelgF2DvHsQgX5p){target="_blank"}
-* [Single white female screech](https://www.twitch.tv/misspeggyx/clip/DaintyMoralAppleHassaanChop-6S9L8SPMrPpllNfh){target="_blank"}
-* [Brat noises](https://www.twitch.tv/misspeggyx/clip/PunchyFaithfulGnatTheRinger-q0iFdzFmIyzsPBCA?filter=clips&range=7d&sort=time){target="_blank"}
-* ["bird" noises](https://www.twitch.tv/misspeggyx/clip/ConfidentFreezingAardvarkDAESuppy-YBvU5Z5m7H956bPo?filter=clips&range=7d&sort=time){target="_blank"}
-* [Smeego smeego smee!](https://www.twitch.tv/misspeggyx/clip/ComfortableKawaiiCurryOhMyDog-9V92K1TSZV4A6RWx?filter=clips&range=7d&sort=time){target="_blank"}
-* [We don't kinkshame + screech](https://www.twitch.tv/misspeggyx/clip/FriendlyTrustworthyHumanCoolStoryBob-_GxIMm4y56MAvTNA?filter=clips&range=7d&sort=time){target="_blank"}
+  * Name suggestions: HUOOOOOOOGOOGH
+* Black Mesa [Vulululu slurp](https://www.twitch.tv/misspeggyx/clip/CrepuscularPlacidBatteryCorgiDerp-pi9aIOOTQk_0ZeD0){target="_blank"}
+* Penumbra: Black Plague [(worm) Wooo wlulululul wee!](https://www.twitch.tv/misspeggyx/clip/PolishedResourcefulMuleHassaanChop-qTelgF2DvHsQgX5p){target="_blank"}
+* Blood [Single white female screech](https://www.twitch.tv/misspeggyx/clip/DaintyMoralAppleHassaanChop-6S9L8SPMrPpllNfh){target="_blank"}
+* MOTHERED [Brat noises](https://www.twitch.tv/misspeggyx/clip/PunchyFaithfulGnatTheRinger-q0iFdzFmIyzsPBCA?filter=clips&range=7d&sort=time){target="_blank"}
+* MOTHERED ["bird" noises](https://www.twitch.tv/misspeggyx/clip/ConfidentFreezingAardvarkDAESuppy-YBvU5Z5m7H956bPo?filter=clips&range=7d&sort=time){target="_blank"}
+* Black Mesa [Smeego smeego smee!](https://www.twitch.tv/misspeggyx/clip/ComfortableKawaiiCurryOhMyDog-9V92K1TSZV4A6RWx?filter=clips&range=7d&sort=time){target="_blank"}
+* MOTHERED [We don't kinkshame + screech](https://www.twitch.tv/misspeggyx/clip/FriendlyTrustworthyHumanCoolStoryBob-_GxIMm4y56MAvTNA?filter=clips&range=7d&sort=time){target="_blank"}
 * Blood [Keeps falling down cliff SCREECH](https://www.twitch.tv/misspeggyx/clip/AlertHorribleHorseradishCoolCat--QTcp_HJfi4sMhL8?filter=clips&range=7d&sort=time){target="_blank"}
 * [Hikikomori test screech](https://www.twitch.tv/misspeggyx/clip/SparklyFrozenAlligatorCoolStoryBob-BxLE5vIqevNF8at0?filter=clips&range=7d&sort=time){target="_blank"}
 * Blood [Rocket jump SCREECH](https://www.twitch.tv/misspeggyx/clip/TemperedAmusedToothNotATK-aN1fHtJsTpgXwAJi?filter=clips&range=7d&sort=time){target="_blank"}
@@ -34,10 +35,10 @@ I'd like for the community to help me group these together and give 'em appropri
 * Blood [NO! spider fear screeches + YES](https://www.twitch.tv/misspeggyx/clip/ExuberantCrowdedCobraShazBotstix-7NXxoLILGxC-SLwj?filter=clips&range=7d&sort=time){target="_blank"}
 * Blood [Too many dudes screech](https://www.twitch.tv/misspeggyx/clip/ZanyCheerfulStingrayRickroll-FkxzwoXZ5CaEeEER?filter=clips&range=7d&sort=time){target="_blank"}
 * Thief [Heh heh heh + WHAT](https://www.twitch.tv/misspeggyx/clip/EnergeticAnimatedKimchiKeepo-F0NSrsbKAK5RrayY?filter=clips&range=7d&sort=time){target="_blank"}
-* [Khah](https://www.twitch.tv/misspeggyx/clip/GrotesqueCuteFrogMVGame-HoqUNMhpHW0lChNb?filter=clips&range=7d&sort=time){target="_blank"}
-* [Feralwife noises + almost snorked + screech](https://www.twitch.tv/misspeggyx/clip/RoundGracefulHeronMVGame-cqYpCigMVYKTszfG?filter=clips&range=7d&sort=time){target="_blank"}
+* Thief [Khah](https://www.twitch.tv/misspeggyx/clip/GrotesqueCuteFrogMVGame-HoqUNMhpHW0lChNb?filter=clips&range=7d&sort=time){target="_blank"}
+* Thief [Feralwife noises + almost snorked + screech](https://www.twitch.tv/misspeggyx/clip/RoundGracefulHeronMVGame-cqYpCigMVYKTszfG?filter=clips&range=7d&sort=time){target="_blank"}
 * Thief [Woh](https://www.twitch.tv/misspeggyx/clip/FurtiveFairCougarPeteZaroll-QPFvvAWcJgWeIjQA?filter=clips&range=7d&sort=time){target="_blank"}
-* [That was mEEEEE](https://www.twitch.tv/misspeggyx/clip/GorgeousCallousShrimpPhilosoraptor-Vp0e71vm7Q7dZsuY?filter=clips&range=7d&sort=time){target="_blank"}
+* Blood [That was mEEEEE](https://www.twitch.tv/misspeggyx/clip/GorgeousCallousShrimpPhilosoraptor-Vp0e71vm7Q7dZsuY?filter=clips&range=7d&sort=time){target="_blank"}
 * Thief [Let's gooooo, ggggghhhh](https://www.twitch.tv/misspeggyx/clip/ClumsyIncredulousLlamaVoteYea-JOPUgCVAZQ0mxdXA?filter=clips&range=7d&sort=time){target="_blank"}
 * Thief [NOT THE FROG](https://www.twitch.tv/misspeggyx/clip/SuspiciousBoredRingPrimeMe-arsgYkQU7M8Yctzp?filter=clips&range=7d&sort=time){target="_blank"}
 * Lego piranha [Petting her own head, purring](https://www.twitch.tv/misspeggyx/clip/SmallDifficultArugulaBloodTrail-L3BWZ-cJTImt8uqd?filter=clips&range=all&sort=time){target="_blank"}
@@ -47,9 +48,9 @@ I'd like for the community to help me group these together and give 'em appropri
 * Normal Fishing [Dolphin noises](https://www.twitch.tv/misspeggyx/clip/PoorEnchantingCobblerAMPTropPunch-qy3DdjfH7_ngPrAB){target="_blank"}
 * Thief [Supposed Gnome noises](https://www.twitch.tv/misspeggyx/clip/InnocentEntertainingRuffPoooound-6iw9mxCdxkZ7ZwIb){target="_blank"}
 * Withering Rooms [wO-](https://www.twitch.tv/misspeggyx/clip/EmpathicGlamorousHornetGingerPower-7bmzyhGOEKjFdmqA?filter=clips&range=all&sort=time){target="_blank"}
-* [Mummy "eee"](https://www.twitch.tv/misspeggyx/clip/SweetTsundereSandwichKreygasm-Pr-zg8jUxmXyAOTX?filter=clips&range=all&sort=time){target="_blank"}
-* [plaplaplaplaplap!](https://www.twitch.tv/misspeggyx/clip/BoldVenomousAmazonKappaClaus-7VkoS74lpZRwRzaY?filter=clips&range=all&sort=time){target="_blank"}
-* [Spice Girls (I wanna gdsfjhkhdfkhgjdf ah)](https://www.twitch.tv/misspeggyx/clip/ImpossiblePlayfulBottleCopyThis-swEQYY6M3L_5-7ox?filter=clips&range=all&sort=time){target="_blank"}
+* DEUS EX [Mummy "eee"](https://www.twitch.tv/misspeggyx/clip/SweetTsundereSandwichKreygasm-Pr-zg8jUxmXyAOTX?filter=clips&range=all&sort=time){target="_blank"}
+* OVERLORD [plaplaplaplaplap!](https://www.twitch.tv/misspeggyx/clip/BoldVenomousAmazonKappaClaus-7VkoS74lpZRwRzaY?filter=clips&range=all&sort=time){target="_blank"}
+* GRUNN [Spice Girls (I wanna gdsfjhkhdfkhgjdf ah)](https://www.twitch.tv/misspeggyx/clip/ImpossiblePlayfulBottleCopyThis-swEQYY6M3L_5-7ox?filter=clips&range=all&sort=time){target="_blank"}
 * DREDGE ["Parrot" Peggy needs a cracker](https://www.twitch.tv/misspeggyx/clip/AbrasiveInspiringAnacondaRedCoat-tWwIf10kR8ZQvVKg?filter=clips&range=all&sort=time){target="_blank"}
 * Adapt [*muffle*](https://www.twitch.tv/misspeggyx/clip/MoldySweetBaconWutFace-YRD3MGb_YaPhUUdb?filter=clips&range=all&sort=time){target="_blank"}
 * Halloween [Parade yeow + yaa](https://www.twitch.tv/misspeggyx/clip/GracefulConcernedThymeStrawBeary-JEoqMtedB6dvn8Ag?filter=clips&range=all&sort=time){target="_blank"}
@@ -67,7 +68,7 @@ I'd like for the community to help me group these together and give 'em appropri
 * The Mortuary Assistant [Tumble dryer](https://www.twitch.tv/misspeggyx/clip/UninterestedAmazonianPancakeNotLikeThis-7kqcRjlueb-YVlSb){target="_blank"}
 * The Mortuary Assistant [Quiet laugh squeaks](https://www.twitch.tv/misspeggyx/clip/SquareSpoopyClipsmomKappaRoss-KKFR72IRMvXqK-ZX){target="_blank"}
 * The Mortuary Assistant [Troll noises](https://www.twitch.tv/misspeggyx/clip/PreciousDirtyWrenDeIlluminati-5Xdyxyh6yJmIVfGh){target="_blank"}
-
+* [Moans](https://clips.twitch.tv/FunnyWiseDinosaurBudStar-mqK1pN-ZSe7FEpdF)
 
 ## Other sources
 

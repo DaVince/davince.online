@@ -27,6 +27,7 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * The Mortuary Assistant [The support team has done it bad this time...](https://www.twitch.tv/misspeggyx/clip/TangibleSweetSoybeanDatBoi-8QsE4O1EIzAtzl00)
 * The Mortuary Assistant ["I need instructions for fucking!"](https://www.twitch.tv/misspeggyx/clip/CredulousGorgeousFalconDeIlluminati-Vn-yAiOVmN5hJAzR)
 * The Mortuary Assistant [Peggy the piss collector](https://www.twitch.tv/misspeggyx/clip/SpineyAmusedDragonfruitCclamChamp-H7vz8WD2noylemhH)
+* [This is not a pee streamer, mister! This is a piss streamer!](https://clips.twitch.tv/CheerfulImpartialBibimbapRaccAttack-Kxxhi2P1UWKmhZM3)
 
 # Mommy Voice
 
@@ -36,6 +37,7 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * Lego Piranha [Are you a good part?](https://www.twitch.tv/misspeggyx/clip/OptimisticSourDelicataCharlieBitMe-lzIWiPeYsO5yrGRc?filter=clips&range=all&sort=time)
 * Morrowind [I know you wanna open for me](https://www.twitch.tv/misspeggyx/clip/ChillyAmusedShingleArsonNoSexy-zJkLqs227IcOrUPw?filter=clips&range=all&sort=time)
 * The Mortuary Assistant [I guess you are my little pogchamp...](https://www.twitch.tv/misspeggyx/clip/ColdYawningLasagnaWoofer--BenaUoF6Fp7fZBG)
+* Silent Hill 2 [Mold Girl ASMR](https://www.twitch.tv/misspeggyx/clip/NaiveTangentialWatercressBCWarrior-TUQsov-6uQtW7iuN)
 
 
 # Funni moments
@@ -146,6 +148,10 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 
 * [A thankful sow...](https://www.twitch.tv/misspeggyx/clip/PoisedTenaciousPresidentFutureMan-jsR4NaoOH2xwODqR)
 
+
+# ASMR
+
+* Silent Hill 2 [Mold Girl ASMR](https://www.twitch.tv/misspeggyx/clip/NaiveTangentialWatercressBCWarrior-TUQsov-6uQtW7iuN)
 
 
 # LEFT OFF AT....
