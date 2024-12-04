@@ -68,7 +68,21 @@ I'd like for the community to help me group these together and give 'em appropri
 * The Mortuary Assistant [Tumble dryer](https://www.twitch.tv/misspeggyx/clip/UninterestedAmazonianPancakeNotLikeThis-7kqcRjlueb-YVlSb){target="_blank"}
 * The Mortuary Assistant [Quiet laugh squeaks](https://www.twitch.tv/misspeggyx/clip/SquareSpoopyClipsmomKappaRoss-KKFR72IRMvXqK-ZX){target="_blank"}
 * The Mortuary Assistant [Troll noises](https://www.twitch.tv/misspeggyx/clip/PreciousDirtyWrenDeIlluminati-5Xdyxyh6yJmIVfGh){target="_blank"}
-* [Moans](https://clips.twitch.tv/FunnyWiseDinosaurBudStar-mqK1pN-ZSe7FEpdF)
+* Silent Hill 2 [Moans](https://clips.twitch.tv/FunnyWiseDinosaurBudStar-mqK1pN-ZSe7FEpdF)
+* Silent Hill 2 [nO](https://www.twitch.tv/misspeggyx/clip/GlutenFreeBadLegYee-3zGFalMPLGsad3H-)
+* Silent Hill 2 [HDMI condom Bitey](https://www.twitch.tv/misspeggyx/clip/EnergeticAbstruseNewtNerfRedBlaster-D0yLIBKCA0bqIwyr)
+* Silent Hill 2 [Car noises](https://clips.twitch.tv/ClumsyVictoriousCarrotStoneLightning-COpk8k2j9OJlTyot)
+* Silent Hill 2 [WAUGH!](https://clips.twitch.tv/SleepyTalentedBaconAsianGlow-UjUS9TYqS_a2j0Ax)
+* Silent Hill 2 [Quack](https://clips.twitch.tv/CaringDifficultPrariedogEagleEye-3_vrbecC_c9VMcf5)
+* Silent Hill 2 [Yoshi: Revengeance](https://clips.twitch.tv/SuccessfulSilkyHyenaBabyRage-HGDhhWZy6hgApjaS)
+
+## Check
+
+* Silent Hill 2 [Athirstyb0i 1](https://clips.twitch.tv/AlluringTubularTeaBudStar-RXhlHwkvC2I8H9t6)
+* Silent Hill 2 [Athirstyb0i 2](https://clips.twitch.tv/CuriousSuperPorpoiseCopyThis-5-kg0ImasoLZcuZ2)
+* Silent Hill 2 [Athirstyb0i 3](https://clips.twitch.tv/AttractiveQuaintAntBibleThump-adi6xc2YzyBmXjMO)
+* [Nya? Athirstyboi](https://clips.twitch.tv/EasyFreezingKimchiCharlieBitMe-RxnEMCeknYoU-0Q0)
+
 
 ## Other sources
 
