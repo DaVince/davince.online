@@ -75,6 +75,8 @@ I'd like for the community to help me group these together and give 'em appropri
 * Silent Hill 2 [WAUGH!](https://clips.twitch.tv/SleepyTalentedBaconAsianGlow-UjUS9TYqS_a2j0Ax)
 * Silent Hill 2 [Quack](https://clips.twitch.tv/CaringDifficultPrariedogEagleEye-3_vrbecC_c9VMcf5)
 * Silent Hill 2 [Yoshi: Revengeance](https://clips.twitch.tv/SuccessfulSilkyHyenaBabyRage-HGDhhWZy6hgApjaS)
+* Silent Hill 3 [Arf arf!](https://www.twitch.tv/misspeggyx/clip/BovineVastRuffTwitchRPG-r2Id77IPi1n-czUJ)
+
 
 ## Check
 
