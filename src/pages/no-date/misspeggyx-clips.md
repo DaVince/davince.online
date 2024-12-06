@@ -8,24 +8,10 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 
 
-# snusk
+# Snusk
 
-* MOTHERED [Please do not announce to the server](https://www.twitch.tv/misspeggyx/clip/SteamyMildGnatLitFam-YVGJMxxgj_tiCm3_?filter=clips&range=7d&sort=time)
-* [Hey! Teacher! Put that dick away!](https://www.twitch.tv/misspeggyx/clip/SleepyTangentialPuddingTTours-eGQP51Y0HfBnyaCx?filter=clips&range=7d&sort=time)
-* Halls of Torment [Peggy the boner killer](https://www.twitch.tv/misspeggyx/clip/InventiveBraveClintKappaRoss-pMamYTa1mnn_38X2?filter=clips&range=all&sort=time)
-* [I wanna be sperm again](https://www.twitch.tv/misspeggyx/clip/ChillyElatedStrawberryYee-wj_ftFsJqe_-YvQ5?filter=clips&range=all&sort=time)
-* Overlord [She'll throw them in the juice pit](https://www.twitch.tv/misspeggyx/clip/SpikyClumsyCattleCclamChamp-3nyG2EJuPTsXEvg1?filter=clips&range=all&sort=time)
-* Black Mesa [DTF Freeman](https://www.twitch.tv/misspeggyx/clip/TsundereAgilePiePeanutButterJellyTime-qMXncUcsBbwbtIlO?filter=clips&range=all&sort=time)
-* Diablo [Searched LEWD on Twitch...](https://www.twitch.tv/misspeggyx/clip/TacitSavageRavenTBCheesePull-gk-uSHZGUUdGB5Tl?filter=clips&range=all&sort=time)
-* The Mortuary Assistant [The support team has done it bad this time...](https://www.twitch.tv/misspeggyx/clip/TangibleSweetSoybeanDatBoi-8QsE4O1EIzAtzl00)
-* The Mortuary Assistant [Peggy the piss collector](https://www.twitch.tv/misspeggyx/clip/SpineyAmusedDragonfruitCclamChamp-H7vz8WD2noylemhH)
-* [This is not a pee streamer, mister! This is a piss streamer!](https://clips.twitch.tv/CheerfulImpartialBibimbapRaccAttack-Kxxhi2P1UWKmhZM3)
-* Silent Hill 2 [Peggy will not fart on you or pee on the floor](https://clips.twitch.tv/FilthyInquisitiveCougarVoteYea-u5pFRYC51ILs4692)
-* Silent Hill 2 [Dicked down daddy...](https://clips.twitch.tv/PunchyOptimisticWalletRalpherZ--ArPHsOB9_31uelW)
-* Silent Hill 2 [Tampon](https://clips.twitch.tv/FaithfulFrozenChinchillaDatSheffy-58V4Rv7rdvNAF-gN)
-* Silent Hill 2 [They had to nerf breast feeding](https://clips.twitch.tv/AverageArborealKeyboardDendiFace-6Vk9Hrsa266R8VSd)
-* Silent Hill 2 [Onabutthole](https://clips.twitch.tv/SoftBreakableCheetahBloodTrail-G0COJYNH_6Hr9Om5)
-* Deus Ex [Peggy googles how to cook testicles](https://www.twitch.tv/misspeggyx/clip/BlatantOpenWoodcockShadyLulu-XcTwcNpVT96fncne)
+[Clips from completed works](./misspeggyx-clips-completed.md.html)
+
 
 # Mommy Voice
 
