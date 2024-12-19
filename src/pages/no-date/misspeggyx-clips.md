@@ -3,14 +3,46 @@
 If you happened to stumble across this page, then welcome! I collect MISSPEGGYx clips here and organize them according to various themes! When I got enough clips for a theme, they be turned into some nice edits for my [PEGGYx's Kitchen YouTube channel](https://www.youtube.com/@PEGGYsKitchen)!
 
 
+# Make shorts out of
+
+* https://www.twitch.tv/misspeggyx/clip/AbstruseGeniusJamDBstyle-Lk03h6Ub1IgAFTFe
+
+
 # Sow noises
 
 Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
+
+* The Cabin Factory [extended Ah](https://www.twitch.tv/misspeggyx/clip/ResourcefulDifficultGrassStoneLightning-cw96QsRm8kklxcQL)
+* The Cabin Factory [Ah](https://clips.twitch.tv/SneakyCooperativeBillDatSheffy-QDyR7MDNFQq32kk3)
+* Silent Hill 2 [Ah + greetings](https://www.twitch.tv/misspeggyx/clip/MuddyUnusualOwlDeIlluminati-ParbGClCDa57ACoI)
+* Silent Hill 2 [Ah](https://clips.twitch.tv/HomelyAmusedSmoothieDoubleRainbow-NohzC_UL9Nd2ucEe)
+* Silent Hill 2 [Watch movies together / eeeee](https://www.twitch.tv/misspeggyx/clip/AbstemiousSuspiciousAxeBigBrother-lvCvqISqFpKThaDD)
+* Silent Hill 2 [purring](https://clips.twitch.tv/BlueKnottyOryxKappaWealth-uQJ_XIaXkdWYCTqM)
+* Silent Hill 2 [Wah](https://www.twitch.tv/misspeggyx/clip/GrotesqueAmorphousReubenAllenHuhu-MO-Drlh_jSRqKCUa)
+* Silent Hill 2 [Kirby hiii!](https://clips.twitch.tv/CrackyDeadMuleJonCarnage-TrdowG7nTomWTTy4)
+* Silent Hill 2 [Kirby poyo + inhale](https://clips.twitch.tv/StrongSincerePlumberPicoMause-rbD1LCqiFVMoMMkX)
+* Silent Hill 2 [7/10 burp](https://clips.twitch.tv/OilyRamshackleSalsifyPartyTime-KncgZepYS4Rgbh3r)
 
 
 # Snusk
 
 [Clips from completed works](./misspeggyx-clips-completed.md.html)
+
+* Silent Hill 2 [MISSPEGGYx Inflation on Google](https://clips.twitch.tv/ConcernedUninterestedCardKappaClaus-m7V98XkPOTxxmf6-)
+* The Cabin Factory [I got myself a wage cage... It's in the bedroom.](https://www.twitch.tv/misspeggyx/clip/CheerfulMildTarsierMVGame-QPNGzPBG93TUQfX4)
+* [Archie Cock](https://www.twitch.tv/misspeggyx/clip/IronicRoundMangoPlanking-9i453sgNSYPKKoNs)
+
+
+# Chat being snusk
+
+* Phasmophobia with Alfhilde [Peggy keeps one pair of lips on screen at all times](https://youtu.be/cXJtKQsjNTs?t=1374)
+* Silent Hill 2 [Twitch chat makes me PREGNANT](https://www.twitch.tv/misspeggyx/clip/JoyousSwissNeanderthalWholeWheat-OuJ7q57PrTt-XMUb)
+
+
+# Perfect timing
+
+* Silent Hill 2 [The Swedish word for Merry Christmas is PEGI 18](https://clips.twitch.tv/BreakableFunJayAllenHuhu-0-P0UIoUXqcRfLpD)
+* Silent Hill 2 [Peggy is completely STINKY](https://clips.twitch.tv/PunchyConsiderateShingleShadyLulu-CNEnoAiVpMfHvdoY)
 
 
 # Mommy Voice
@@ -24,7 +56,10 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * Silent Hill 2 [Mold Girl ASMR](https://www.twitch.tv/misspeggyx/clip/NaiveTangentialWatercressBCWarrior-TUQsov-6uQtW7iuN)
 * Silent Hill 2 [She bites hard...](https://www.twitch.tv/misspeggyx/clip/BreakablePhilanthropicDoveKappaPride-akKsZQ-qaAhhVWVg)
 * Silent Hill 2 [Women...](https://www.twitch.tv/misspeggyx/clip/ThoughtfulSuperPeanutMoreCowbell-JWAoKvcoppdZbtTq)
-
+* Silent Hill 2 [MISSPEGGYx Inflation on Google](https://clips.twitch.tv/ConcernedUninterestedCardKappaClaus-m7V98XkPOTxxmf6-)
+* The Cabin Factory [Hot ghost mommies in your neighborhood](https://clips.twitch.tv/FrozenRenownedPartridgeBibleThump-IOLJR47i-OfFRU38)
+* [CLEAN YOUR DISHES!](https://clips.twitch.tv/ModernAssiduousPangolinSpicyBoy-c8A9BMqlP58Py66y)
+* Silent Hill 2 [In my rizzless dreams...](https://www.twitch.tv/misspeggyx/clip/DeliciousPluckySandstormPartyTime-7AlO591npKv5wrMh)
 
 # Funni moments
 
@@ -39,14 +74,20 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * Blood [Yeahhh single white female...](https://www.twitch.tv/misspeggyx/clip/DaintyMoralAppleHassaanChop-6S9L8SPMrPpllNfh?filter=clips&range=all&sort=time)
 * Thief [A million lizardmen chasing me](https://www.twitch.tv/misspeggyx/clip/TallSpotlessSageSaltBae-8Ve4zM1ENwKFh88o?filter=clips&range=all&sort=time)
 * Silent Hill 2 [It's time to kick ass and collect rings... And I'm all outta rings...](https://clips.twitch.tv/FaintKindLardMau5-XTKlIKrl1vzfQ6Kg)
+* The Cabin Factory [Kid from the Kid Factory aka your MOM](https://clips.twitch.tv/MuddyCrispyEelUnSane-3j1pby2NCLgFOl8n)
+* The Cabin Factory [Best end to a horror game](https://www.twitch.tv/misspeggyx/clip/PlainSmoggyMilkTinyFace-qFgkqIcUl53DiRV-)
+* Silent Hill 2 [Peggy's short term memory...](https://www.twitch.tv/misspeggyx/clip/ConfidentDullSalmonBabyRage-UhqxXnJmyPUpiMNQ)
+* Silent Hill 2 [Chat makes light of the In Water ending](https://www.twitch.tv/misspeggyx/clip/SleepyBashfulPlumageOpieOP-2DtPdsVjgHQLPlJB)
 
 
-# Peggy singing
+# Peggy Sings
 
 * [Hey! Teacher! Put that dick away!](https://www.twitch.tv/misspeggyx/clip/SleepyTangentialPuddingTTours-eGQP51Y0HfBnyaCx?filter=clips&range=7d&sort=time)
 * Blood [When I was a young boy](https://www.twitch.tv/misspeggyx/clip/AbstemiousMoistHyenaBCouch-hd8d1LW1OYs7ZMKO?filter=clips&range=7d&sort=time)
 * [Spice Girls](https://www.twitch.tv/misspeggyx/clip/ImpossiblePlayfulBottleCopyThis-swEQYY6M3L_5-7ox?filter=clips&range=all&sort=time)
 * Thief [Stop, hammer time](https://www.twitch.tv/misspeggyx/clip/ToughNurturingZucchiniAMPTropPunch-GWLu3gQxUXo__D5g?filter=clips&range=all&sort=time)
+* The Cabin Factory [Rickroll 3](https://clips.twitch.tv/DeliciousFlaccidWolfWow-ZvgSD_l8QUAcYo_U)
+* Silent Hill 2 [You used to call me on my cell phone](https://clips.twitch.tv/PoorDullCaribouCoolCat-u5gAB0lZqww8PRRs)
 
 
 # Peggy Facts
@@ -60,6 +101,8 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * Lego piranha [Come and say hi to chat](https://www.twitch.tv/misspeggyx/clip/NiceInnocentPizzaOSkomodo-NwAx6WftwIqRL8M5?filter=clips&range=all&sort=time)
 * Subathon [Mreow?](https://www.twitch.tv/misspeggyx/clip/GeniusFairGnatSwiftRage-pqLLoykZBexuCBLt)
 * Wheel of Horror [Neff eating plastic](https://www.twitch.tv/misspeggyx/clip/ImportantAliveCamelFeelsBadMan-lUdcGZMaxNh7mTKi?filter=clips&range=all&sort=time)
+* The Cabin Factory [Neff steals Christmas!](https://www.twitch.tv/misspeggyx/clip/AbstruseGeniusJamDBstyle-Lk03h6Ub1IgAFTFe)
+* The Cabin Factory [Neff understands mommy's meow meow](https://clips.twitch.tv/PleasantReliableCoffeeUWot-xX0KJGVCzUAATub9)
 
 
 # Glitches & related
@@ -89,6 +132,7 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * Thief [Why do you always think I'm a bat?](https://www.twitch.tv/misspeggyx/clip/CrypticRelievedDolphinCmonBruh-B1cjnoJbyIO04TfU?filter=clips&range=all&sort=time)
 * The Mortuary Assistant [She is NOT flat!!!](https://www.twitch.tv/misspeggyx/clip/FriendlyAnimatedHabaneroBudBlast-egajABPbZWl5nOjH)
 * Silent Hill 2 [Peggy has a nose???](https://www.twitch.tv/misspeggyx/clip/ExquisiteHotHorseradishPoooound-jsw_snca48crfH9v)
+* Phasmophobia with Alfhilde [People often think I'm a bat](https://youtu.be/cXJtKQsjNTs?t=1262)
 
 
 # Lewd travelling cat girl
@@ -96,17 +140,25 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * Pixel Peggy reveal [During BALD TOGGLE](https://www.twitch.tv/misspeggyx/clip/KawaiiEncouragingWebMikeHogu-5NXc8BhqEUaoECJV?filter=clips&range=all&sort=time)
 * Just Chatting [A regular travelling cat girl](https://www.twitch.tv/misspeggyx/clip/TubularWiseKoupreyDuDudu-FyGUekllJvIUpu8C?filter=clips&range=all&sort=time)
 * Silent Hill 2 [Snowed in](https://www.twitch.tv/misspeggyx/clip/BoredAltruisticDillAMPTropPunch-RQICzpr7bnWnZwX9)
+* Silent Hill 2 [Travelling lewd Santa girl](https://www.twitch.tv/misspeggyx/clip/SpicyElegantTarsierBCWarrior-Xhn8kyOu8_C8sifR)
 
 
 # Swedish With Peggy
 
 * The Beacon's End [Äckelpäckel (something yucky)](https://www.twitch.tv/misspeggyx/clip/SavoryGiftedGarlicDuDudu-PRh4CK7Cv26qqkg0)
 * The Mortuary Assistant [Viper](https://www.twitch.tv/misspeggyx/clip/PoorCorrectOrcaKappaWealth-Gfy9_JTcHmILoN8T)
+* Silent Hill 2 [The word for island is Ö](https://clips.twitch.tv/BovineAnnoyingLeopardPeteZaroll-c6i7e4covdlITaY4)
+* Silent Hill 2 [ID = leg](https://clips.twitch.tv/DeterminedAliveWallabyMrDestructoid-5O8oRx2GuSKT-3kU)
+
+* Silent Hill 2 [Peggy swears in Finnish](https://www.twitch.tv/misspeggyx/clip/VenomousAstuteDaikonDAESuppy-yMLQWKHgoa3khQNs)
+* Silent Hill 2 [Peggy swears in Finnish 2](https://clips.twitch.tv/ShinyRockyMosquitoNinjaGrumpy-MEWsJMJ5n3vBCflg)
 
 
 # ADHD/autism moments
 
 * Silent Hill: Shattered Memories [I can marry tax for chat reasons](https://www.twitch.tv/misspeggyx/clip/TolerantIronicJamNononoCat-cPja18ZqwfAXCEIT?filter=clips&range=all&sort=time)
+* Silent Hill 2 [Peggy forgets to turn on the PS5... and plug in the HDMI...](https://www.twitch.tv/misspeggyx/clip/ResilientFastRavenBloodTrail-SsMW81w_3W0AAAnM)
+* Silent Hill 2 [Peggy's short term memory...](https://www.twitch.tv/misspeggyx/clip/ConfidentDullSalmonBabyRage-UhqxXnJmyPUpiMNQ)
 
 
 # Peggy is "good" at games / deaths
@@ -117,11 +169,13 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * DON'T SCREAM [Peggy loses by dropping her straw](https://www.twitch.tv/misspeggyx/clip/CorrectAdorablePotVoHiYo-_MxKpn1RGlkLx6Ao?filter=clips&range=all&sort=time)
 * Deadly Premonition [Can I get hit by cars?](https://www.twitch.tv/misspeggyx/clip/JollyIntelligentDaikonFreakinStinkin-39awdnSQFc6_rGWU?filter=clips&range=all&sort=time)
 * Blood [A "little bit of precision"](https://www.twitch.tv/misspeggyx/clip/FantasticGrotesqueMetalChocolateRain-VecT-dnM7EsLM6uY?filter=clips&range=all&sort=time)
+* The Cabin Factory [A little before this, Peggy completely misses the exit door after almost walking through it](https://clips.twitch.tv/MuddyFaintPigSwiftRage-4LGVl1iuFudbxIOc)
 
 
 # Peggy actually being good at games
 
 * Thief [I will throw a sack on you](https://www.twitch.tv/misspeggyx/clip/MoistSpunkyChipmunkDatSheffy-WFB7EDuuZBUpqSAE?filter=clips&range=all&sort=time)
+* The Cabin Factory [Peggy Wins!](https://www.twitch.tv/misspeggyx/clip/ExpensiveLovelyOpossumMrDestructoid-h38Zo3BcxwxJZJFo)
 
 
 # Misc
@@ -155,7 +209,15 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * Silent Hill 2 [Yoshi: Revengeance](https://clips.twitch.tv/SuccessfulSilkyHyenaBabyRage-HGDhhWZy6hgApjaS)
 
 
+# Useful in general
+
+* Silent Hill 2 [Ah + greetings](https://www.twitch.tv/misspeggyx/clip/MuddyUnusualOwlDeIlluminati-ParbGClCDa57ACoI)
+
+
 # LEFT OFF AT....
 
 A clip titled "Chat gave Peggy crabs?!"
 
+# TO CHECK
+
+* https://www.twitch.tv/misspeggyx/clip/ConfidentDullSalmonBabyRage-UhqxXnJmyPUpiMNQ
