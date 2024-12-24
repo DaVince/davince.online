@@ -1,6 +1,6 @@
 % DaVince
 
-![*waves*](img/emote/MISSPEGGYx/peggyxHi.gif)
+![*waves*](img/emote/MISSPEGGYx/peggyxHi.webp)
 
 Hi hey hello! I'm DaVince! Nice to meetcha!
 

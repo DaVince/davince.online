@@ -16,7 +16,7 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * The Cabin Factory [Ah](https://clips.twitch.tv/SneakyCooperativeBillDatSheffy-QDyR7MDNFQq32kk3)
 * Silent Hill 2 [Ah + greetings](https://www.twitch.tv/misspeggyx/clip/MuddyUnusualOwlDeIlluminati-ParbGClCDa57ACoI)
 * Silent Hill 2 [Ah](https://clips.twitch.tv/HomelyAmusedSmoothieDoubleRainbow-NohzC_UL9Nd2ucEe)
-* Silent Hill 2 [Watch movies together / eeeee](https://www.twitch.tv/misspeggyx/clip/AbstemiousSuspiciousAxeBigBrother-lvCvqISqFpKThaDD)
+* Silent Hill 2 [Watch movies together + eeeee](https://www.twitch.tv/misspeggyx/clip/AbstemiousSuspiciousAxeBigBrother-lvCvqISqFpKThaDD)
 * Silent Hill 2 [purring](https://clips.twitch.tv/BlueKnottyOryxKappaWealth-uQJ_XIaXkdWYCTqM)
 * Silent Hill 2 [Wah](https://www.twitch.tv/misspeggyx/clip/GrotesqueAmorphousReubenAllenHuhu-MO-Drlh_jSRqKCUa)
 * Silent Hill 2 [Kirby hiii!](https://clips.twitch.tv/CrackyDeadMuleJonCarnage-TrdowG7nTomWTTy4)
@@ -209,7 +209,7 @@ Check [MISSPEGGYx Sounds](../2024/2024-11-misspeggyx_sounds.md.html)!
 * Silent Hill 2 [Yoshi: Revengeance](https://clips.twitch.tv/SuccessfulSilkyHyenaBabyRage-HGDhhWZy6hgApjaS)
 
 
-# Useful in general
+# Greetings, hello, bye and generally useful clips
 
 * Silent Hill 2 [Ah + greetings](https://www.twitch.tv/misspeggyx/clip/MuddyUnusualOwlDeIlluminati-ParbGClCDa57ACoI)
 
