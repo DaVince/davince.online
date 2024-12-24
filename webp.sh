@@ -9,5 +9,6 @@ convertToWebP() {
 }
 
 # cd src/img/emote/MISSPEGGYx
+# cd src/peggyx-recap-2024
 cd src/img
 convertToWebP
