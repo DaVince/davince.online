@@ -1,10 +1,11 @@
 #!/bin/bash
 
 convertToWebP() {
-  rm -f *.webp
-  for f in *; do
+  for f in *.jpg *.gif *.png *.; do
     filename="${f%.*}"
-    ffmpeg -i "$f" -lossless 1 -loop 0 "$filename.webp"
+    case "$f" in (*\**) continue;; esac
+    echo $filename
+    ffmpeg -y -i "$f" -lossless 1 -loop 0 "$filename.webp"
   done
 }
 

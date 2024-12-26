@@ -19,7 +19,7 @@
 /* Specific things */
 .site-container {
     display: grid;
-    grid-template-columns: 1fr [main] min(900px, 100%) 1fr;
+    grid-template-columns: 1fr 1fr [main] min(900px, 100%) 1fr 1fr;
     row-gap: 3rem;
     column-gap: 0;
 }
@@ -45,21 +45,27 @@
 
 .title h2 {
     font-size: min(4rem, 12vw);
+    line-height: initial;
     margin: 2rem 0 0 0;
 }
 
 .title h3 {
     font-size: min(2rem, 9vw);
     padding-inline: 8rem;
+    line-height: min(2.5rem, 10vw);
     margin: 1rem 0 0 0;
 }
 
-.content {
+.width-content {
     grid-column: main;
 }
 
-.fullwidth {
-    grid-column: 1 / 4;
+.width-75 {
+    grid-column: 2 / 5;
+}
+
+.width-100 {
+    grid-column: 1 / 6;
 }
 
 body {
@@ -86,45 +92,52 @@ body {
     grid-template-columns: repeat(2, minmax(calc(50% - var(--card-gap)), 1fr));
 }
 
+.grid-4 {
+    grid-template-columns: repeat(4, minmax(calc(25% - var(--card-gap)), 1fr));
+}
+
 .grid-5 {
     grid-template-columns: repeat(5, minmax(calc(20% - var(--card-gap)), 1fr));
 }
 
-.grid div {
+.card {
     border-radius: var(--border-radius);
-    position: relative;
 }
 
-.grid div:nth-child(4n + 1) {
+.card:nth-child(4n + 1) {
     background: linear-gradient(100deg, var(--card-1-bg), var(--bg-color-darker), var(--card-1-bg));
     box-shadow: 0 0 var(--card-glow) 0 var(--card-1-bg);
     border: 2px solid var(--card-1-bg);
 }
-.grid div:nth-child(4n + 2) {
+.card:nth-child(4n + 2) {
     background: linear-gradient(140deg, var(--card-2-bg), var(--bg-color-darker), var(--card-2-bg));
     box-shadow: 0 0 var(--card-glow) 0 var(--card-2-bg);
     border: 2px solid var(--card-2-bg);
 }
-.grid div:nth-child(4n + 3) {
+.card:nth-child(4n + 3) {
     background: linear-gradient(180deg, var(--card-3-bg), var(--bg-color-darker), var(--card-3-bg));
     box-shadow: 0 0 var(--card-glow) 0 var(--card-3-bg);
     border: 2px solid var(--card-3-bg);
 }
-.grid div:nth-child(4n + 4) {
+.card:nth-child(4n + 4) {
     background: linear-gradient(200deg, var(--card-4-bg), var(--bg-color-darker), var(--card-4-bg));
     box-shadow: 0 0 var(--card-glow) 0 var(--card-4-bg);
     border: 2px solid var(--card-4-bg);
 }
 
-.grid div > img {
+.grid img {
     width: 100%;
+    border-radius: var(--border-radius);
+}
+
+.grid .card > img {
     height: 250px;
     object-fit: cover;
     border-radius: var(--border-radius) var(--border-radius) 0 0;
     position: relative;
 }
 
-.grid div > img.tall {
+.grid .card > img.tall {
     height: 500px;
 }
 
@@ -142,6 +155,22 @@ a:any-link {
     background: linear-gradient(var(--blood-bright), var(--blood-dark));
     background-clip: text;
     color: transparent;
+}
+
+.fishy {
+    background: linear-gradient(#b4edff, #77a2b6);
+    background-clip: text;
+    color: transparent;
+}
+
+.pink {
+    background: linear-gradient(#ef76fa, #f8c1fd);
+    background-clip: text;
+    color: transparent;
+}
+
+.vertical-align {
+    align-content: center;
 }
 
 .header {
@@ -162,6 +191,18 @@ h1 {
     font-size: min(4rem, 12vw);
 }
 
+h2 {
+    line-height: 2rem;
+}
+
+.small {
+    font-size: small;
+}
+
+.grid div p.small {
+    font-size: 1rem;
+}
+
 .rot90 {
     transform: rotate(90deg);
 }
@@ -171,7 +212,8 @@ h1 {
     color: inherit;
 }
 
-.emote {
+img.emote {
+    border-radius: 0;
     width: 2rem;
     vertical-align: middle;
 }
@@ -183,6 +225,11 @@ h1 {
 
 /* Mobile shit */
 @media screen and (max-width: 700px) {
+    .title h1 {
+        font-size: 24vw;
+        line-height: 8vw;
+    }
+
     .title h3 {
         padding-inline: 0;
     }
@@ -190,5 +237,6 @@ h1 {
     .grid {
         grid-template-columns: 100%;
         margin-bottom: 0;
+        gap: calc(var(--card-gap) / 2);
     }
 }
