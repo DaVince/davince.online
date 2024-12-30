@@ -4,6 +4,7 @@
     --bg-color-darker: #111;
     --bg-color-darkest: #000;
     --blood-bright: #cb0607;
+    --blood-brightest: #e71313;
     --blood-dark: #550707;
 
     --border-radius: 1rem;
@@ -33,11 +34,17 @@
 }
 
 .title img {
+    transition: all 1s;
     width: min(200px, 50vw);
     border-radius: 50%;
     border: 2px solid var(--text-color);
     box-shadow: 0 0 40px -10px var(--blood-bright);
     margin-bottom: min(7rem, 15vw);
+}
+
+.title img:hover {
+    transition: all 1s;
+    box-shadow: 0 0 40px 0 var(--blood-brightest);
 }
 
 .title h1 {
