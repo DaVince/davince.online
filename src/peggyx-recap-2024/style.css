@@ -11,7 +11,7 @@
     --card-gap: 3rem;
     --card-glow: 20px;
     --card-1-bg: #3d0202;
-    --card-2-bg: #021a3d;
+    --card-2-bg: #041f46;
     --card-3-bg: #023d19;
     --card-4-bg: #3d3702;
 }
@@ -76,6 +76,7 @@ body {
     font-optical-sizing: auto;
     font-weight: 400;
     font-style: normal;
+    font-size: 1.5rem;
     background-color: var(--bg-color-dark);
     background: radial-gradient(var(--bg-color-dark), var(--bg-color-darkest)) fixed;
     color: var(--text-color);
@@ -97,6 +98,7 @@ body {
 
 .grid-4 {
     grid-template-columns: repeat(4, minmax(calc(25% - var(--card-gap)), 1fr));
+    gap: min(2vw, var(--card-gap));
 }
 
 .grid-5 {
@@ -143,9 +145,7 @@ body {
 .grid .card > img.tall {
     height: 500px;
 }
-
-.grid div p {
-    font-size: 1.5rem;
+.grid p {
     margin: 1rem;
 }
 
@@ -195,7 +195,21 @@ h1 {
 }
 
 h2 {
-    line-height: 2rem;
+    line-height: 3rem;
+}
+
+ul {
+    margin-left: 1rem;
+    padding-left: 1rem;
+}
+
+li {
+    margin-bottom: 0.5rem;
+}
+
+hr {
+    border: none;
+    border-bottom: 1px solid var(--text-color);
 }
 
 .small {
@@ -229,6 +243,17 @@ img.emote {
 }
 
 /* Specific stuff */
+.the-numbers {
+    display: flex;
+    flex-direction: row;
+}
+.peggy-smol {
+    max-width: 350px;
+}
+.peggy-smol img {
+    width: min(100%, 240px);
+}
+
 .strommi,
 .halloween {
     position: relative;
@@ -264,6 +289,12 @@ img.emote {
 
 /* Mobile shit */
 @media screen and (max-width: 700px) {
+    .title,
+    .width-content,
+    .width-100 {
+        padding-inline: 0.5rem;
+    }
+
     .title h1 {
         font-size: 24vw;
         line-height: 8vw;
@@ -279,10 +310,20 @@ img.emote {
         gap: calc(var(--card-gap) / 2);
     }
 
+    .the-numbers {
+        display: initial;
+    }
+
+    .peggy-smol {
+        max-width: initial;
+        margin: 1rem;
+    }
+
     .strommi .content {
         right: 0.5rem;
         text-align: right;
     }
+
     .halloween .content {
         left: 0.5rem;
     }
