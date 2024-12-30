@@ -1,5 +1,7 @@
 % MISSPEGGYx Sounds
 
+[This video is now DONE!]()
+
 Peggy has mentioned that [she would like to see a video that features all of the noises she makes, with some names to refer to them!](https://www.twitch.tv/misspeggyx/clip/NastyAmusedBaconPeteZaroll-T7sFYgBBaS4quuxU) Here's a big ol' list of clips where she makes such noises.
 
 I'd like for the community to help me group these together and give 'em appropriate names!
@@ -77,20 +79,17 @@ I'd like for the community to help me group these together and give 'em appropri
 * Silent Hill 2 [Yoshi: Revengeance](https://clips.twitch.tv/SuccessfulSilkyHyenaBabyRage-HGDhhWZy6hgApjaS)
 * Silent Hill 3 [Arf arf!](https://www.twitch.tv/misspeggyx/clip/BovineVastRuffTwitchRPG-r2Id77IPi1n-czUJ)
 * Silent Hill 2 [Peggy dying sounds](https://clips.twitch.tv/PuzzledImportantToothFeelsBadMan-ixnEo455FuUKrT0h)
-
-## Check
-
-* Silent Hill 2 [Athirstyb0i 1](https://clips.twitch.tv/AlluringTubularTeaBudStar-RXhlHwkvC2I8H9t6)
-* Silent Hill 2 [Athirstyb0i 2](https://clips.twitch.tv/CuriousSuperPorpoiseCopyThis-5-kg0ImasoLZcuZ2)
-* Silent Hill 2 [Athirstyb0i 3](https://clips.twitch.tv/AttractiveQuaintAntBibleThump-adi6xc2YzyBmXjMO)
-* [Nya? Athirstyboi](https://clips.twitch.tv/EasyFreezingKimchiCharlieBitMe-RxnEMCeknYoU-0Q0)
-
+* The Cabin Factory [extended Ah](https://www.twitch.tv/misspeggyx/clip/ResourcefulDifficultGrassStoneLightning-cw96QsRm8kklxcQL)
+* The Cabin Factory [Ah](https://clips.twitch.tv/SneakyCooperativeBillDatSheffy-QDyR7MDNFQq32kk3)
+* Silent Hill 2 [Ah + greetings](https://www.twitch.tv/misspeggyx/clip/MuddyUnusualOwlDeIlluminati-ParbGClCDa57ACoI)
+* Silent Hill 2 [Ah](https://clips.twitch.tv/HomelyAmusedSmoothieDoubleRainbow-NohzC_UL9Nd2ucEe)
+* Silent Hill 2 [Watch movies together + eeeee](https://www.twitch.tv/misspeggyx/clip/AbstemiousSuspiciousAxeBigBrother-lvCvqISqFpKThaDD)
+* Silent Hill 2 [purring](https://clips.twitch.tv/BlueKnottyOryxKappaWealth-uQJ_XIaXkdWYCTqM)
+* Silent Hill 2 [Wah](https://www.twitch.tv/misspeggyx/clip/GrotesqueAmorphousReubenAllenHuhu-MO-Drlh_jSRqKCUa)
+* Silent Hill 2 [Kirby hiii!](https://clips.twitch.tv/CrackyDeadMuleJonCarnage-TrdowG7nTomWTTy4)
+* Silent Hill 2 [Kirby poyo + inhale](https://clips.twitch.tv/StrongSincerePlumberPicoMause-rbD1LCqiFVMoMMkX)
+* Silent Hill 2 [7/10 burp](https://clips.twitch.tv/OilyRamshackleSalsifyPartyTime-KncgZepYS4Rgbh3r)
 
 ## Other sources
 
 * Haymaxn: sent a motherlode of videos! Check [these Discord messages](https://discord.com/channels/1081142021944770631/1149689081949851712/1306338545518121092){target="_blank"}.
-
-
-## To find
-
-* Haymaxn: "there's also a folder of hiccups from Crow Country stream but i'm pretty sure there was a clip"
