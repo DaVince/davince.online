@@ -287,6 +287,20 @@ img.emote {
     z-index: 1;
 }
 
+.critter-container {
+    position: relative;
+    margin-bottom: 5rem;
+}
+[class^="critter"] {
+    position: absolute;
+}
+.critter-1 {
+    left: -5%;
+}
+.critter-2 {
+    right: -5%;
+}
+
 /* Mobile shit */
 @media screen and (max-width: 700px) {
     .title,

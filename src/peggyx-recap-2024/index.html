@@ -125,7 +125,10 @@
                 </div>
             </section>
 
-            <div class="fullpage width-content">
+            <div class="fullpage width-content critter-container">
+                <img src="critters/DaVince.webp" alt="" class="critter-1" />
+                <img src="critters/Jerky.webp" alt="" class="critter-2" />
+
                 <header class="width-100 center">
                     <h1 class="bloody">Honorary mentions</h1>
                     <h2>Here's some more cool stuff that happened throughout the year!</h2>
@@ -225,6 +228,11 @@
             <section class="width-75 grid">
                 <img src="model-live2d.webp" alt="BRAT IN ACTION" />
             </section>
+
+            <section class="width-content center fullpage">
+                <h1 class="bloody">Thanks, Peggy!</h1>
+                <h2>Your streams have been very entertaining this year! Let's enjoy the next one just as much as we've enjoyed this one!</h2>
+            </section>
         </div>
 
         <footer class="center">
@@ -233,7 +241,7 @@
             <p>Smol Peggy artwork by Jerky</p>
             <p>Shower redeem artwork by Icceptz</p>
             <p>Partner Plus and subathon artwork by <a href="https://ko-fi.com/azuranski" target="_blank" rel="noopener noreferrer">Azuranski</a></p>
-            <p>4000 follower darklings drawn by MISSPEGGYx herself!</p>
+            <p>4000 followers + little darklings by MISSPEGGYx herself!</p>
             <p>
                 Special thanks to <a href="https://www.twitch.tv/misspeggyx" target="_blank" rel="noopener noreferrer">MISSPEGGYx</a> for always
                 streaming for us!
@@ -243,6 +251,7 @@
         </footer>
 
         <script>
+            // Scroll smoothly on anchor clicks (where smooth scrolling is enabled)
             document.querySelectorAll('a[href^="#"]').forEach((anchor) => {
                 anchor.addEventListener("click", function (e) {
                     e.preventDefault();
@@ -252,8 +261,22 @@
                 });
             });
 
+            // Set random darksow height
             const randomHeight = 120 + Math.round(Math.random() * 30);
             document.querySelector(".cm").textContent = randomHeight;
+
+            // Generate critters
+            for (let i = 1; i <= 20; i++) {
+                const critter = document.createElement("img");
+                critter.className = "critter";
+                critter.src = `./critters/${i}.webp`;
+
+                const randomX = `${-40 + i * 8}%`;
+                critter.style.left = randomX;
+                critter.style.bottom = `-${40 + Math.random() * 60}px`;
+
+                document.querySelector(".critter-container").prepend(critter);
+            }
         </script>
     </body>
 </html>
