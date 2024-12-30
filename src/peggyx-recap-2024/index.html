@@ -125,10 +125,7 @@
                 </div>
             </section>
 
-            <div class="fullpage width-content critter-container">
-                <img src="critters/DaVince.webp" alt="" class="critter-1" />
-                <img src="critters/Jerky.webp" alt="" class="critter-2" />
-
+            <div class="fullpage width-content">
                 <header class="width-100 center">
                     <h1 class="bloody">Honorary mentions</h1>
                     <h2>Here's some more cool stuff that happened throughout the year!</h2>
@@ -231,8 +228,9 @@
 
             <section class="width-content center fullpage">
                 <h1 class="bloody">Thanks, Peggy!</h1>
-                <h2>Your streams have been very entertaining this year! Let's enjoy the next one just as much as we've enjoyed this one!</h2>
+                <h2>Your streams have been very entertaining this year! Let's enjoy the next one just as much as we've all enjoyed this one!</h2>
             </section>
+            <section class="critter-container width-75"></section>
         </div>
 
         <footer class="center">
@@ -266,16 +264,17 @@
             document.querySelector(".cm").textContent = randomHeight;
 
             // Generate critters
-            for (let i = 1; i <= 20; i++) {
+            const sowCount = 22;
+            for (let i = 1; i <= sowCount; i++) {
                 const critter = document.createElement("img");
                 critter.className = "critter";
                 critter.src = `./critters/${i}.webp`;
 
-                const randomX = `${-40 + i * 8}%`;
-                critter.style.left = randomX;
-                critter.style.bottom = `-${40 + Math.random() * 60}px`;
+                critter.style.left = `${(i - 1) * (100 / sowCount)}%`;
+                critter.style.bottom = `${40 + Math.random() * 60}px`;
+                critter.style.width = `${(100 / sowCount) * 2}%`;
 
-                document.querySelector(".critter-container").prepend(critter);
+                document.querySelector(".critter-container").append(critter);
             }
         </script>
     </body>

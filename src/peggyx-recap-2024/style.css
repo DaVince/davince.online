@@ -81,6 +81,7 @@ body {
     background: radial-gradient(var(--bg-color-dark), var(--bg-color-darkest)) fixed;
     color: var(--text-color);
     margin: 0;
+    overflow-x: hidden;
 }
 
 .grid {
@@ -289,16 +290,12 @@ img.emote {
 
 .critter-container {
     position: relative;
+    margin-top: -5rem;
     margin-bottom: 5rem;
 }
-[class^="critter"] {
+img.critter {
     position: absolute;
-}
-.critter-1 {
-    left: -5%;
-}
-.critter-2 {
-    right: -5%;
+    max-width: 83px;
 }
 
 /* Mobile shit */
