@@ -28,6 +28,15 @@
     column-gap: 0;
 }
 
+.explosions {
+    background-image: url(explode/Explosion1.webp), url(explode/explode3.webp), url(../img/emote/MISSPEGGYx/PEGMID.webp),
+        url(explode/explosiongross.webp), url(explode/explosiont.webp), url(../img/emote/MISSPEGGYx/peggyxInsane.webp);
+    background-position: 0 0, 50px 50px, 100px 100px, 150px 150px, 200px 200px, 250px 250px;
+}
+.explosions .site-container {
+    background-color: rgba(0, 0, 0, 0.5);
+}
+
 .title {
     grid-column: main;
     text-align: center;
@@ -272,7 +281,9 @@ img.emote {
     grid-area: 1 / 3 / 3 / 4;
     align-content: end;
 }
-.the-numbers-grid .left > img,
+.the-numbers-grid .left > img {
+    width: min(100%, 500px);
+}
 .the-numbers-grid .right > img {
     width: min(100%, 300px);
 }
@@ -319,6 +330,13 @@ img.emote {
 img.critter {
     position: absolute;
     max-width: 83px;
+}
+
+@media screen and (max-width: 1000px) {
+    .grid-5 {
+        grid-template-columns: 1fr 1fr 1fr;
+        gap: 2rem;
+    }
 }
 
 /* Mobile shit */
