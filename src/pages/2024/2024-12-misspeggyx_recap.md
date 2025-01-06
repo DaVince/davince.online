@@ -16,6 +16,7 @@ Peggy gets a job!
 
 * Peggy Moments
   * The shower redeem, posting her wet hair, and the SECOND shower redeem
+    * [Lego Piranha stream](https://www.twitch.tv/videos/2098218034) - contains first shower redeem!
   * The introduction and memeification of the travelling lewd catgirl
   * [PEGGY MADE PARTNER](https://clips.twitch.tv/BlueTemperedPlumberTBCheesePull-1jbrWz8Nfd3SbpJ9)
 
@@ -29,7 +30,4 @@ Peggy gets a job!
 * To check
   * LosLizards - Couldn't date, but Peggy changing Deus Ex to dude sex? Maybe paired with Lex Sesbian, which I think was with Fallout NV
 
-
-
-* [Lego Piranha stream](https://www.twitch.tv/videos/2098218034) - contains first shower redeem!
-
+* [End with this](https://clips.twitch.tv/AggressiveResourcefulWebPraiseIt-z4HRQJC8u4LyYari)

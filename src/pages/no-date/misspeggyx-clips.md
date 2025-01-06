@@ -22,6 +22,10 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Sauna stream ["Make me" aghh](https://clips.twitch.tv/CorrectFrozenVanillaOpieOP-lFVEM_5maKWddWp6?tt_content=channel_name&tt_medium=embed)
 * Sauna stream [Bzzz bzz bzzz](https://clips.twitch.tv/OddTenderShieldWTRuck-uBKqX6QtmtxXlMjR)
 * 2024 [Wah!](https://clips.twitch.tv/SpineyGlamorousNoodlePJSugar-0XOoVLG3zHhl87a8)
+* The Cabin Factory [NO!](https://clips.twitch.tv/BoxySassyStingrayVoHiYo-cvUv5oKuN0T6Wpev)
+* The Cabin Factory [Biting noises](https://clips.twitch.tv/CallousHilariousBubbleteaPRChase-yNeZ1Y0Bzy-eFm9g)
+* The Cabin Factory [Beeg! Raund!](https://clips.twitch.tv/BenevolentSpoopyCakeStinkyCheese-xSXikUupTx6Iccyw)
+
 
 # Snusk
 
@@ -35,6 +39,9 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Sauna stream ["It looks like I'm coming"](https://clips.twitch.tv/AlertLuckyAnacondaWOOP-jUHOAh39SdC7gHON)
 * Sauna stream [It STILL looks like it](https://clips.twitch.tv/HedonisticCrackyAubergineSoonerLater-3x9eVuqDJyf40ZzG)
 * [Erection streamer](https://clips.twitch.tv/ElatedFineClipsdadPermaSmug-0Ekz6g77HS43pNl6)
+* 2024 recap [RETURN OF THE BOING BOING](https://clips.twitch.tv/SteamySmellySeahorseOneHand-XAJx0KQ7TEMOEtJI)
+* 2024 recap [Undrop those balls, mister!](https://clips.twitch.tv/TenderGlutenFreeFishJonCarnage-YFbLKiIf3JZjfMix)
+* [Peggy washed her pp](https://www.twitch.tv/misspeggyx/clip/ExquisiteStrongSoymilkRitzMitz-zakhlXVmnp2cpV2t)
 
 
 # Chat being snusk
@@ -48,6 +55,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Chat calling Peggy an old unmarried woman](https://www.twitch.tv/misspeggyx/clip/BlushingVainChimpanzeeOhMyDog-y0F8tTvRhr0E8Juu)
 * [MIKE HUNT IS THROBBING HELP](https://clips.twitch.tv/NimbleAbstruseFalconGingerPower-61hMznAWpmWzmlhb)
 * [Mike Hunt is burning](https://www.twitch.tv/misspeggyx/clip/AmazingLachrymoseHamSmoocherZ-T2dUe2gcdRB8s_Ig)
+* [Ice_swallow_gum](https://clips.twitch.tv/SpoopyAnimatedCucumberTheThing-n1lqYdq4NlaWnWcq)
 
 
 # Funni giftsubs
@@ -87,6 +95,9 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Enjoy the next 24 hours...](https://www.twitch.tv/misspeggyx/clip/SingleManlyRaccoonKappaClaus-j2vWufKdXPF1TXeU)
 * Sauna stream [The term "ani" blooper](https://clips.twitch.tv/PatientWimpyCoffeeJebaited-MwU2q1GGN6lm2Lzb?tt_content=channel_name&tt_medium=embed)
 * Sauna stream [The term "ani"](https://clips.twitch.tv/MoralEmpathicTildeSpicyBoy-HfgPNFT60PJ5pYfN)
+* [Piss pills](https://clips.twitch.tv/PlacidSmellyRabbitPJSalt-Sy0jZg7X4_wTWbwP)
+* [Hey chat did you know? Urine is usually an acid](https://clips.twitch.tv/YummyNaiveTroutOMGScoots-61PV09CdM_umI9bC)
+* The Cabin Factory [uh i forgor](https://clips.twitch.tv/GentleAmorphousSrirachaPartyTime-B_iSJtnDknQzih1W)
 
 
 # Funni moments
@@ -109,6 +120,8 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Don't Scream: Peggy getting scared by dropping her straw (need to find the clip) IT'S IN AZU'S VIDEO
 * [Bratwurst](https://clips.twitch.tv/AbnegateScrumptiousCourgetteResidentSleeper-D6V2Bat9tobdM83P)
   * [Turn Peggy into a brat pretzel](https://clips.twitch.tv/AbnegateImpossibleKangarooBudStar-cn2sr7aRBKkre7-s)
+* [The greatest heist of all time - I GOT ALL THE POINTS](https://clips.twitch.tv/AbstemiousImpartialElephantVoteNay-yWt99ii8wRZPx6tP)
+* The Cabin Factory [Safe? Hahaha no](https://clips.twitch.tv/StylishMotionlessChinchillaHoneyBadger-HRPMyZeCphBicvKf)
 
 
 # Peggy Sings
@@ -174,7 +187,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Phasmophobia with Alfhilde [People often think I'm a bat](https://youtu.be/cXJtKQsjNTs?t=1262)
 
 
-# Lewd travelling cat girl
+# Lewd travelling cat girl (neeko neeko nee)
 
 * Pixel Peggy reveal [During BALD TOGGLE](https://www.twitch.tv/misspeggyx/clip/KawaiiEncouragingWebMikeHogu-5NXc8BhqEUaoECJV?filter=clips&range=all&sort=time)
 * Just Chatting [A regular travelling cat girl](https://www.twitch.tv/misspeggyx/clip/TubularWiseKoupreyDuDudu-FyGUekllJvIUpu8C?filter=clips&range=all&sort=time)
@@ -182,6 +195,8 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Silent Hill 2 [Travelling lewd Santa girl](https://www.twitch.tv/misspeggyx/clip/SpicyElegantTarsierBCWarrior-Xhn8kyOu8_C8sifR)
 * 3 Christmas ones in the Christmas Massacre stream
 * [NO WAY A CATGIRL ON THE YEAR'S LAST STREAM](https://clips.twitch.tv/WrongEnticingHorseradishGrammarKing-wQHmdfl_msK2frkx)
+* [Lewd Travelling Fish Girl](https://clips.twitch.tv/VivaciousAggressiveWheelHumbleLife-H6sntABOKeGATWRZ)
+* The Cabin Factory [Reference to the original](https://clips.twitch.tv/VivaciousCuriousPonyChocolateRain-RK6_NEpEjuKzaPFe)
 
 
 # Swedish With Peggy
@@ -198,6 +213,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [2025](https://clips.twitch.tv/FantasticRockyRuffPogChamp-wNrx1jng-r7eZ4sW)
 * [Kitchen = kök](https://clips.twitch.tv/BeautifulImportantShrewJKanStyle-lLQUrCeBesVc2IW6)
   * [You can eat Shrek in the cock](https://clips.twitch.tv/CourageousRacyMarrowPlanking-jqCSZuHssQoqH2iY)
+* [Toes](https://clips.twitch.tv/EntertainingNeighborlyMilkRuleFive-DKLVCUFv1sUKNPMe)
 
 
 # ADHD/autism moments
