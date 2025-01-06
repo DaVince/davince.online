@@ -43,7 +43,7 @@
 }
 
 .title img {
-    transition: all 1s;
+    transition: all 0.7s;
     width: min(200px, 50vw);
     border-radius: 50%;
     border: 2px solid var(--text-color);
@@ -52,7 +52,6 @@
 }
 
 .title img:hover {
-    transition: all 1s;
     box-shadow: 0 0 40px 0 var(--blood-brightest);
 }
 
@@ -122,8 +121,17 @@ body {
     grid-template-columns: repeat(5, minmax(calc(20% - var(--card-gap)), 1fr));
 }
 
-.card {
+.card,
+.effect {
+    transition: all 0.3s;
     border-radius: var(--border-radius);
+    filter: brightness(90%);
+}
+
+.card:hover,
+.effect:hover {
+    filter: brightness(102%);
+    transform: scale(102%);
 }
 
 .card:nth-child(4n + 1) {
@@ -321,6 +329,13 @@ img.emote {
     z-index: 1;
 }
 
+.flip:hover {
+    transition: all 0.5s;
+    transform: rotate(720deg);
+    transform-origin: 40%;
+    transition-delay: 1s;
+}
+
 .critter-container {
     position: relative;
     margin-top: -5rem;
@@ -330,6 +345,30 @@ img.emote {
 img.critter {
     position: absolute;
     max-width: 83px;
+    transition: all 0.2s;
+}
+img.critter:hover {
+    animation: bounce 0.3s;
+}
+@keyframes bounce {
+    0% {
+        transform: translateY(0%);
+    }
+    33% {
+        transform: translateY(-15%);
+    }
+    66% {
+        transform: translateY(0%);
+    }
+    100% {
+        transform: translateY(-7%);
+    }
+}
+
+iframe {
+    max-width: 100%;
+    height: 100%;
+    aspect-ratio: 16 / 9;
 }
 
 @media screen and (max-width: 1000px) {
