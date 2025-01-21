@@ -112,6 +112,11 @@ body {
     grid-template-columns: repeat(2, minmax(calc(50% - var(--card-gap)), 1fr));
 }
 
+.grid-3 {
+    grid-template-columns: repeat(3, minmax(calc(33.34% - var(--card-gap)), 1fr));
+    gap: calc(var(--card-gap) * 0.75);
+}
+
 .grid-4 {
     grid-template-columns: repeat(4, minmax(calc(25% - var(--card-gap)), 1fr));
     gap: min(2vw, var(--card-gap));
@@ -172,6 +177,18 @@ body {
 }
 .grid p {
     margin: 1rem;
+}
+
+.grid .card > img.square {
+    height: 350px;
+}
+
+.subathon .card {
+    width: 65%;
+    margin: 0 auto;
+}
+.subathon .card > img {
+    height: auto;
 }
 
 .center {
@@ -265,6 +282,10 @@ img.emote {
 .fullpage {
     min-height: 100vh;
     align-content: center;
+}
+
+.no-bottom-margin {
+    margin-bottom: 0;
 }
 
 /* Specific stuff */
@@ -420,5 +441,9 @@ iframe {
 
     .halloween .content {
         left: 0.5rem;
+    }
+
+    .subathon .card {
+        width: calc(100% - 1rem);
     }
 }
