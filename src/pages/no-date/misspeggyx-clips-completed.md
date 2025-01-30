@@ -41,3 +41,30 @@
 * Silent Hill 2 [They had to nerf breast feeding](https://clips.twitch.tv/AverageArborealKeyboardDendiFace-6Vk9Hrsa266R8VSd)
 * Silent Hill 2 [Onabutthole](https://clips.twitch.tv/SoftBreakableCheetahBloodTrail-G0COJYNH_6Hr9Om5)
 * Deus Ex [Peggy googles how to cook testicles](https://www.twitch.tv/misspeggyx/clip/BlatantOpenWoodcockShadyLulu-XcTwcNpVT96fncne)
+
+
+# Funni Moments 1
+
+[The YouTube video](https://www.youtube.com/watch?v=GlkdEpYI4Dw)
+
+### Sources
+
+* Black Mesa [Not today, Satan. Maybe today, Satan.](https://www.twitch.tv/misspeggyx/clip/AgitatedOddPlumTwitchRaid-T4Q_FCkptD5FFZrq?filter=clips&range=7d&sort=time)
+* Blood [I hate belly button inspection day](https://www.twitch.tv/misspeggyx/clip/ZanyCheerfulStingrayRickroll-FkxzwoXZ5CaEeEER?filter=clips&range=7d&sort=time)
+* Fallout NV [Dr. STINKY](https://www.twitch.tv/misspeggyx/clip/FrigidEvilEyeballPhilosoraptor-qaMcQP1ElT0Pj6yG?filter=clips&range=all&sort=time)
+* Silent Hill Downpour [Nipple jumpscare](https://www.twitch.tv/misspeggyx/clip/GiantBusyDragonflyBleedPurple-VPccJpQlx2sAoOmq?filter=clips&range=all&sort=time)
+* [SUBSCRIPTION BOMB + mic broke](https://www.twitch.tv/misspeggyx/clip/BlazingBraveMelonOSsloth-_vbfpza3JipB0Dt9?filter=clips&range=all&sort=time)
+* Voices of the Void [Peggy falls](https://www.twitch.tv/misspeggyx/clip/TenderSlickHamburgerPeteZarollTie-rtFn_jsstMgoCGvg?filter=clips&range=all&sort=time)
+* That's Not My Neighbor [He slowly strangled me with his trunk](https://www.twitch.tv/misspeggyx/clip/SuspiciousPrettiestCocoaPRChase-3EK7CE2TOmSO0PQy?filter=clips&range=all&sort=time)
+* Blood [Yeahhh single white female...](https://www.twitch.tv/misspeggyx/clip/DaintyMoralAppleHassaanChop-6S9L8SPMrPpllNfh?filter=clips&range=all&sort=time)
+* Thief [A million lizardmen chasing me](https://www.twitch.tv/misspeggyx/clip/TallSpotlessSageSaltBae-8Ve4zM1ENwKFh88o?filter=clips&range=all&sort=time)
+* The Cabin Factory [Kid from the Kid Factory aka your MOM](https://clips.twitch.tv/MuddyCrispyEelUnSane-3j1pby2NCLgFOl8n)
+* The Cabin Factory [Best end to a horror game](https://www.twitch.tv/misspeggyx/clip/PlainSmoggyMilkTinyFace-qFgkqIcUl53DiRV-)
+* Silent Hill 2 [Peggy's short term memory...](https://www.twitch.tv/misspeggyx/clip/ConfidentDullSalmonBabyRage-UhqxXnJmyPUpiMNQ)
+* Silent Hill 2 [Chat makes light of the In Water ending](https://www.twitch.tv/misspeggyx/clip/SleepyBashfulPlumageOpieOP-2DtPdsVjgHQLPlJB)
+* Don't Scream: Peggy getting scared by dropping her straw (need to find the clip) IT'S IN AZU'S VIDEO
+* [Bratwurst](https://clips.twitch.tv/AbnegateScrumptiousCourgetteResidentSleeper-D6V2Bat9tobdM83P)
+  * [Turn Peggy into a brat pretzel](https://clips.twitch.tv/AbnegateImpossibleKangarooBudStar-cn2sr7aRBKkre7-s)
+* [The greatest heist of all time - I GOT ALL THE POINTS](https://clips.twitch.tv/AbstemiousImpartialElephantVoteNay-yWt99ii8wRZPx6tP)
+* Blood [Hi friends! Bye friends!](https://www.twitch.tv/misspeggyx/clip/DarlingBlindingSpiderNerfBlueBlaster-AfSUYWSlDuwwHbYj)
+* Blood [What's wrong with Peggy? She's Swedish.](https://www.twitch.tv/misspeggyx/clip/SpeedyAntsyAlmondRlyTho-OPzmePUU199A2XQU)
