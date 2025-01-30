@@ -127,7 +127,8 @@ body {
 }
 
 .card,
-.effect {
+.effect,
+.effect-smol {
     transition: all 0.3s;
     border-radius: var(--border-radius);
     filter: brightness(90%);
@@ -137,6 +138,11 @@ body {
 .effect:hover {
     filter: brightness(102%);
     transform: scale(102%);
+}
+
+.effect-smol:hover {
+    filter: brightness(102%);
+    transform: scale(98%);
 }
 
 .card:nth-child(4n + 1) {
@@ -286,6 +292,11 @@ img.emote {
 
 .no-bottom-margin {
     margin-bottom: 0;
+}
+
+.line-height {
+    height: 1em;
+    vertical-align: middle;
 }
 
 /* Specific stuff */
