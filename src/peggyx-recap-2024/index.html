@@ -90,7 +90,7 @@
             <div class="width-content subathon grid no-bottom-margin center">
                 <div class="card">
                     <img src="peggy-subathon.webp" alt="Birthday Subathon!" />
-                    <p>The 4-day <b>birthday subathon</b>! The community SMASHED through all the goals on just the second day!</p>
+                    <p>The 4-day <b>birthday subathon</b>! The community SMASHED through all the goals on just the third day!</p>
                     <p class="small">
                         Day
                         <a href="https://www.twitch.tv/videos/2284995835" target="_blank" rel="noopener">1</a>
@@ -300,35 +300,35 @@
         <script>
             // Scroll smoothly on anchor clicks (where smooth scrolling is enabled)
             document.querySelectorAll('a[href^="#"]').forEach((anchor) => {
-                anchor.addEventListener("click", function (e) {
+                anchor.addEventListener('click', function (e) {
                     e.preventDefault();
-                    document.querySelector(this.getAttribute("href")).scrollIntoView({
-                        behavior: "smooth",
+                    document.querySelector(this.getAttribute('href')).scrollIntoView({
+                        behavior: 'smooth',
                     });
                 });
             });
 
             // Set random darksow height
             const randomHeight = 120 + Math.round(Math.random() * 30);
-            document.querySelector(".cm").textContent = randomHeight;
+            document.querySelector('.cm').textContent = randomHeight;
 
             // Generate critters
             const sowCount = 22;
             for (let i = 1; i <= sowCount; i++) {
-                const critter = document.createElement("img");
-                critter.className = "critter";
+                const critter = document.createElement('img');
+                critter.className = 'critter';
                 critter.src = `./critters/${i}.webp`;
 
                 critter.style.left = `${(i - 1) * (100 / sowCount)}%`;
                 critter.style.bottom = `${40 + Math.random() * 60}px`;
                 critter.style.width = `${(100 / sowCount) * 2}%`;
 
-                document.querySelector(".critter-container").append(critter);
+                document.querySelector('.critter-container').append(critter);
             }
 
-            addEventListener("keypress", (e) => {
-                if (e.key === "p") {
-                    document.querySelector("body").classList.add("explosions");
+            addEventListener('keypress', (e) => {
+                if (e.key === 'p') {
+                    document.querySelector('body').classList.add('explosions');
                 }
             });
         </script>
