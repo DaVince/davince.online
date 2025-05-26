@@ -28,6 +28,12 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * DP2 [burp 8/10?](https://clips.twitch.tv/ObeseOpenAnteaterVoteYea-yTTUATe8yRt6bndC)
 * Blood [SHRUBBERY](https://www.twitch.tv/misspeggyx/clip/ElegantPricklySnailVoteYea-t8KYWPmE677fg2yA)
 * DP2 [Ah ah ah](https://www.twitch.tv/misspeggyx/clip/ArtisticBlueDragonFreakinStinkin-K--peUgExiXcsVpL)
+* Black Mesa [New eeeeeeee unlocked](https://clips.twitch.tv/AliveBusyPonyCharlietheUnicorn-bxW3cRTTWIS2opDw)
+* flesh, blood and concrete [I love it when cats go mreeoow!](https://www.twitch.tv/misspeggyx/clip/EnchantingInventivePotPupper-JyV9HTfPu1ar2Js1)
+* [SEE!?](https://www.twitch.tv/misspeggyx/clip/CrispyInexpensiveDogeKippa-izRFgPeJnEJh2CH3)
+* [blbllblblbl texture](https://www.twitch.tv/misspeggyx/clip/GloriousPunchyWalletFreakinStinkin-l9j92y736GccIaOv)
+* [blbllblblbl AGAIN](https://www.twitch.tv/misspeggyx/clip/WittyJoyousEggnogEleGiggle-5TDDYA-LIEWsyhws)
+* Blood [Peggy meows for us](https://www.twitch.tv/misspeggyx/clip/PoorRoundWitchRitzMitz-ycy6y2Um8aUPlP6S)
 
 
 # Snusk
@@ -50,6 +56,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Blood [blod](https://www.twitch.tv/misspeggyx/clip/MiniatureSassyMetalDoggo-nalaa9N1bv1gFNvg)
 * Blood [Beating her meat live on stream pt. 2](https://www.twitch.tv/misspeggyx/clip/PlainSpoopyJellyfishPJSugar-J_z7Lykc3sdU08le)
 * DP2 [Peggy wants to grow a PENIS](https://www.twitch.tv/misspeggyx/clip/NiceBashfulTomatoDxAbomb-FQKG6F1MuGXF4NBH)
+* Blood [Smegma Monday: don't forget to wash your foreskin!](https://www.twitch.tv/misspeggyx/clip/MildComfortableRutabagaHumbleLife-dcLdPZ4UA75l41YC)
 
 
 # Chat being snusk
@@ -172,6 +179,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 
 * Silent Hill [PEGGY MAKES PARTNER!](https://www.twitch.tv/misspeggyx/clip/BlueTemperedPlumberTBCheesePull-1jbrWz8Nfd3SbpJ9)
 * [GO WHITE GIRL GO in new hoodie & hairstyle!](https://www.twitch.tv/misspeggyx/clip/FrailGlamorousFiddleheadsSaltBae-mdGO9sZO2NKCGKS6)
+* [Azu's cat has birthed a baby!](https://www.twitch.tv/misspeggyx/clip/TubularDoubtfulChowderSmoocherZ-BjcgWoTQJF63J4XK)
 
 
 # Peggy is a bat/brat/vampire
@@ -211,6 +219,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Toes](https://clips.twitch.tv/EntertainingNeighborlyMilkRuleFive-DKLVCUFv1sUKNPMe)
 * DP2 [@](https://www.twitch.tv/misspeggyx/clip/SpookySpicyChickenCharlieBitMe-8EyeTQ-FRO91JbXq)
 * Blood [Fluffy](https://www.twitch.tv/misspeggyx/clip/AggressiveCrowdedTrayTBTacoLeft-xpEeRmOHT3F7SkYl)
+* Blood [Cookie dough = cock dick](https://www.twitch.tv/misspeggyx/clip/RichGoldenCroissantWutFace-wQLn6DNYGW3y5HXX)
 
 
 # ADHD/autism moments

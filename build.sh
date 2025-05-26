@@ -7,11 +7,16 @@ echo "==============================="
 echo "Copying over files to dist."
 cp -R src dist
 
+echo "==============================="
+echo "Compiling TypeScript files."
+tsc
+
 cd dist
 
 echo "==============================="
 echo "Cleaning up source files from dist."
 rm -rf **/*.xcf
+rm -rf **/*.ts
 
 echo "==============================="
 echo "Generating HTML files from Markdown."
