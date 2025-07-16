@@ -76,6 +76,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Gimme 20cc of "wah" directly into my veins!](https://www.twitch.tv/misspeggyx/clip/SplendidTacitFalconTwitchRaid-g2LOcimANexdo443)
 * [Cute sneeze](https://www.twitch.tv/misspeggyx/clip/MushyIncredulousDragonfruitDoubleRainbow-ACak7rMRrzk01VF1)
 * Broken Through [Stone moving noises](https://www.twitch.tv/misspeggyx/clip/SpunkyCourteousClipzSSSsss-WL9SFF3Z6-r217R1)
+* [Mandrake sounds](https://www.twitch.tv/misspeggyx/clip/EnergeticBlazingFiddleheadsOSsloth-UVHpf76X_bccSJGn)
 
 
 # Snusk
@@ -256,6 +257,12 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Blood [Fluffy](https://www.twitch.tv/misspeggyx/clip/AggressiveCrowdedTrayTBTacoLeft-xpEeRmOHT3F7SkYl)
 * Blood [Cookie dough = caulk dick](https://www.twitch.tv/misspeggyx/clip/RichGoldenCroissantWutFace-wQLn6DNYGW3y5HXX)
 * FEAR [Swedish for fear is "rad slut"](https://www.twitch.tv/misspeggyx/clip/SwissResilientBearTBTacoRight-z4oDbjoOnhiU85Y4)
+* [Dump butt](https://www.twitch.tv/misspeggyx/clip/AgileProtectiveGrasshopperUncleNox-TCUWQiAlL4Zyp1Ye?filter=clips&range=7d&sort=time)
+* [Dump butt pt 2](https://www.twitch.tv/misspeggyx/clip/KawaiiTacitCamelDeIlluminati-T_D75vHGqK5UgKM_?filter=clips&range=7d&sort=time)
+* [Conductivity](https://www.twitch.tv/misspeggyx/clip/CourageousZealousTermiteBuddhaBar-2crEWRj-QKWfNee7?filter=clips&range=7d&sort=time)
+* [Mammoth](https://www.twitch.tv/misspeggyx/clip/GloriousIronicThymePartyTime--D4sljpAzDJsDYZi?filter=clips&range=7d&sort=time)
+* [Autism](https://www.twitch.tv/misspeggyx/clip/HeartlessExuberantPeafowlDAESuppy-xt__fPWNc3mHZbQf?filter=clips&range=30d&sort=time)
+* [Hair is whore..?!](https://www.twitch.tv/misspeggyx/clip/PatientShinyOilPMSTwin-DGlyqV8twp82RwY-)
 
 
 # ADHD/autism moments
