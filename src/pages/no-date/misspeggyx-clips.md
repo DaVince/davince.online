@@ -77,6 +77,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Cute sneeze](https://www.twitch.tv/misspeggyx/clip/MushyIncredulousDragonfruitDoubleRainbow-ACak7rMRrzk01VF1)
 * Broken Through [Stone moving noises](https://www.twitch.tv/misspeggyx/clip/SpunkyCourteousClipzSSSsss-WL9SFF3Z6-r217R1)
 * [Mandrake sounds](https://www.twitch.tv/misspeggyx/clip/EnergeticBlazingFiddleheadsOSsloth-UVHpf76X_bccSJGn)
+* [CUTE SNEEZES](https://www.twitch.tv/misspeggyx/clip/SplendidWiseHawkDBstyle-eD55r_7mUGJgWpeN)
 
 
 # Snusk
@@ -263,6 +264,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Mammoth](https://www.twitch.tv/misspeggyx/clip/GloriousIronicThymePartyTime--D4sljpAzDJsDYZi?filter=clips&range=7d&sort=time)
 * [Autism](https://www.twitch.tv/misspeggyx/clip/HeartlessExuberantPeafowlDAESuppy-xt__fPWNc3mHZbQf?filter=clips&range=30d&sort=time)
 * [Hair is whore..?!](https://www.twitch.tv/misspeggyx/clip/PatientShinyOilPMSTwin-DGlyqV8twp82RwY-)
+* [Stinky ham](https://www.twitch.tv/misspeggyx/clip/TenaciousBusyTitanTebowing-DInuN9v1Jy_bcEOS)
 
 
 # ADHD/autism moments
