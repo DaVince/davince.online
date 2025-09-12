@@ -3,13 +3,14 @@
 If you happened to stumble across this page, then welcome! I collect MISSPEGGYx clips here and organize them according to various themes! When I got enough clips for a theme, they be turned into some nice edits for my [PEGGYx's Kitchen YouTube channel](https://www.youtube.com/@PEGGYsKitchen)!
 
 - [Sow noises](#sow-noises)
-- [Snusk](#snusk)
-- [Chat being snusk](#chat-being-snusk)
+- [Snusk moments part 3](#snusk-moments-part-3)
+- [Chat being chat](#chat-being-chat)
+- [Peggy Sings](#peggy-sings)
+- [Swedish With Peggy](#swedish-with-peggy)
 - [Funni giftsubs/usernames](#funni-giftsubsusernames)
 - [Perfect timing](#perfect-timing)
 - [Mommy Voice](#mommy-voice)
 - [Funni moments](#funni-moments)
-- [Peggy Sings](#peggy-sings)
 - [Peggy Facts](#peggy-facts)
 - [Neff moments](#neff-moments)
 - [Glitches \& related](#glitches--related)
@@ -17,7 +18,6 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 - [Model reveals \& Big Moments!](#model-reveals--big-moments)
 - [Peggy is a bat/brat/vampire](#peggy-is-a-batbratvampire)
 - [Lewd travelling cat girl (neeko neeko nee)](#lewd-travelling-cat-girl-neeko-neeko-nee)
-- [Swedish With Peggy](#swedish-with-peggy)
 - [ADHD/autism moments](#adhdautism-moments)
 - [ESL moments](#esl-moments)
 - [Peggy is "good" at games / deaths](#peggy-is-good-at-games--deaths)
@@ -78,9 +78,12 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Broken Through [Stone moving noises](https://www.twitch.tv/misspeggyx/clip/SpunkyCourteousClipzSSSsss-WL9SFF3Z6-r217R1)
 * [Mandrake sounds](https://www.twitch.tv/misspeggyx/clip/EnergeticBlazingFiddleheadsOSsloth-UVHpf76X_bccSJGn)
 * [CUTE SNEEZES](https://www.twitch.tv/misspeggyx/clip/SplendidWiseHawkDBstyle-eD55r_7mUGJgWpeN)
+* [Excited yaa](https://www.twitch.tv/misspeggyx/clip/EphemeralEncouragingGnatJebaited-B6qAnhXEtTYJPmkS)
+* [Mew, Togepi](https://www.twitch.tv/misspeggyx/clip/GiantFaintPterodactylWTRuck-qcLafLyO6QRdLZRO)
+* [Mewwwww!](https://www.twitch.tv/misspeggyx/clip/RelatedSingleFlamingoRiPepperonis-Zk34kmm9ftkk0xUC)
 
 
-# Snusk
+# Snusk moments part 3
 
 [Clips from completed works](./misspeggyx-clips-completed.md.html)
 
@@ -109,9 +112,12 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Peggy will defend stargazey pie with her big british cock](https://www.twitch.tv/misspeggyx/clip/SquareStylishSnailResidentSleeper-ZCkXQqDzotoFz66p)
 * [Peggy checks if she's stinky](https://www.twitch.tv/misspeggyx/clip/AmericanTentativeFriesJonCarnage-izJtqs_5rilC61V8)
 * FEAR [I'm not addicted! I can stop whenever I want...](https://www.twitch.tv/misspeggyx/clip/EnthusiasticDeliciousTomatoTebowing-rkbEN4q8swGGBYSN)
+* Mermaid Swamp [Zerking it](https://www.twitch.tv/misspeggyx/clip/BovineImportantMeerkatOpieOP-aj2UC1qe9-ApZzzh)
+* [Peggy talks about horse dicks](https://www.twitch.tv/misspeggyx/clip/WildPopularMeatloafAMPTropPunch-NIJvmxDhI8jGzxOp)
+* Thief 2 [I will not click the boner!](https://www.twitch.tv/misspeggyx/clip/CarefulInexpensiveDadGingerPower-V51OG9DxfO0bX5_-)
 
 
-# Chat being snusk
+# Chat being chat
 
 * Phasmophobia with Alfhilde [Peggy keeps one pair of lips on screen at all times](https://youtu.be/cXJtKQsjNTs?t=1374)
 * Silent Hill 2 [Twitch chat makes me PREGNANT](https://www.twitch.tv/misspeggyx/clip/JoyousSwissNeanderthalWholeWheat-OuJ7q57PrTt-XMUb)
@@ -124,6 +130,56 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Mike Hunt is burning](https://www.twitch.tv/misspeggyx/clip/AmazingLachrymoseHamSmoocherZ-T2dUe2gcdRB8s_Ig)
 * [Ice_swallow_gum](https://clips.twitch.tv/SpoopyAnimatedCucumberTheThing-n1lqYdq4NlaWnWcq)
 * Blood [It's a meat spin...](https://www.twitch.tv/misspeggyx/clip/RudeCrypticBarracudaDxCat-meH7kCHJTYasNcWP)
+* Static Dread [Chat AND Peggy being tsundere](https://www.twitch.tv/misspeggyx/clip/OddGorgeousNuggetsMoreCowbell-JlH2m6R2eTkMXRuz)
+
+
+# Peggy Sings
+
+* [Hey! Teacher! Put that dick away!](https://www.twitch.tv/misspeggyx/clip/SleepyTangentialPuddingTTours-eGQP51Y0HfBnyaCx?filter=clips&range=7d&sort=time)
+* Blood [When I was a young boy](https://www.twitch.tv/misspeggyx/clip/AbstemiousMoistHyenaBCouch-hd8d1LW1OYs7ZMKO?filter=clips&range=7d&sort=time)
+* [Spice Girls](https://www.twitch.tv/misspeggyx/clip/ImpossiblePlayfulBottleCopyThis-swEQYY6M3L_5-7ox?filter=clips&range=all&sort=time)
+* Thief [Stop, hammer time](https://www.twitch.tv/misspeggyx/clip/ToughNurturingZucchiniAMPTropPunch-GWLu3gQxUXo__D5g?filter=clips&range=all&sort=time)
+* The Cabin Factory [Rickroll 3](https://clips.twitch.tv/DeliciousFlaccidWolfWow-ZvgSD_l8QUAcYo_U)
+* Silent Hill 2 [You used to call me on my cell phone](https://clips.twitch.tv/PoorDullCaribouCoolCat-u5gAB0lZqww8PRRs)
+* [Miku Plasma](https://clips.twitch.tv/RealSilkyPizzaAMPEnergyCherry-pcfAJHntDwl4NkCc)
+* [Happy birthday in Swedish!](https://clips.twitch.tv/AveragePoliteOrcaCeilingCat-UtM-KaS30A7D794M)
+* [Caramelldansen](https://www.twitch.tv/misspeggyx/clip/TacitRacyLarkKlappa-0NGlmaozcM8Imhf8)
+* [Macarena](https://www.twitch.tv/misspeggyx/clip/BrainySpeedyJamShadyLulu-Kk9sHHDgL7UqB8af)
+* [Nobody knows where you bought your shirt](https://www.twitch.tv/misspeggyx/clip/CrypticSmilingCocoaOhMyDog-BtKQ_Sp_lJ4QtzeS)
+* [Boom Boom Boom Boom](https://www.twitch.tv/misspeggyx/clip/DullAbrasiveTireCoolStoryBob-0Tc8b7JFAIYwVDbd)
+* [Somebody Once Told Me The World Was Gonna Roll Me](https://www.twitch.tv/misspeggyx/clip/FairEphemeralClamNotLikeThis-06gsPQGQq7ztnfRs)
+
+
+# Swedish With Peggy
+
+* The Beacon's End [Äckelpäckel (something yucky)](https://www.twitch.tv/misspeggyx/clip/SavoryGiftedGarlicDuDudu-PRh4CK7Cv26qqkg0)
+* The Mortuary Assistant [Viper](https://www.twitch.tv/misspeggyx/clip/PoorCorrectOrcaKappaWealth-Gfy9_JTcHmILoN8T)
+* Silent Hill 2 [The word for island is Ö](https://clips.twitch.tv/BovineAnnoyingLeopardPeteZaroll-c6i7e4covdlITaY4)
+* Silent Hill 2 [ID = leg](https://clips.twitch.tv/DeterminedAliveWallabyMrDestructoid-5O8oRx2GuSKT-3kU)
+* Silent Hill 2 [Peggy swears in Finnish](https://www.twitch.tv/misspeggyx/clip/VenomousAstuteDaikonDAESuppy-yMLQWKHgoa3khQNs)
+* Silent Hill 2 [Peggy swears in Finnish 2](https://clips.twitch.tv/ShinyRockyMosquitoNinjaGrumpy-MEWsJMJ5n3vBCflg)
+* [Spinster](https://www.twitch.tv/misspeggyx/clip/BlightedTalentedPicklesPanicVis-wJ4UA5n1kgGxA8yT)
+* [In my breastless streams](https://www.twitch.tv/misspeggyx/clip/MildUgliestCobblerDendiFace-LDpfsBJNT-mWiyWD)
+* [Krokant = crispy](https://clips.twitch.tv/HonorableDeafChowderKappaPride-v1HLSgQnmf0C_0O-)
+* [2025](https://clips.twitch.tv/FantasticRockyRuffPogChamp-wNrx1jng-r7eZ4sW)
+* [Kitchen = kök](https://clips.twitch.tv/BeautifulImportantShrewJKanStyle-lLQUrCeBesVc2IW6)
+  * [You can eat Shrek in the cock](https://clips.twitch.tv/CourageousRacyMarrowPlanking-jqCSZuHssQoqH2iY)
+* [Toes](https://clips.twitch.tv/EntertainingNeighborlyMilkRuleFive-DKLVCUFv1sUKNPMe)
+* DP2 [@](https://www.twitch.tv/misspeggyx/clip/SpookySpicyChickenCharlieBitMe-8EyeTQ-FRO91JbXq)
+* Blood [Fluffy](https://www.twitch.tv/misspeggyx/clip/AggressiveCrowdedTrayTBTacoLeft-xpEeRmOHT3F7SkYl)
+* Blood [Cookie dough = caulk dick](https://www.twitch.tv/misspeggyx/clip/RichGoldenCroissantWutFace-wQLn6DNYGW3y5HXX)
+* FEAR [Swedish for fear is "rad slut"](https://www.twitch.tv/misspeggyx/clip/SwissResilientBearTBTacoRight-z4oDbjoOnhiU85Y4)
+* [Dump butt](https://www.twitch.tv/misspeggyx/clip/AgileProtectiveGrasshopperUncleNox-TCUWQiAlL4Zyp1Ye?filter=clips&range=7d&sort=time)
+* [Dump butt pt 2](https://www.twitch.tv/misspeggyx/clip/KawaiiTacitCamelDeIlluminati-T_D75vHGqK5UgKM_?filter=clips&range=7d&sort=time)
+* [Conductivity](https://www.twitch.tv/misspeggyx/clip/CourageousZealousTermiteBuddhaBar-2crEWRj-QKWfNee7?filter=clips&range=7d&sort=time)
+* [Mammoth](https://www.twitch.tv/misspeggyx/clip/GloriousIronicThymePartyTime--D4sljpAzDJsDYZi?filter=clips&range=7d&sort=time)
+* [Autism](https://www.twitch.tv/misspeggyx/clip/HeartlessExuberantPeafowlDAESuppy-xt__fPWNc3mHZbQf?filter=clips&range=30d&sort=time)
+* [Hair is whore..?!](https://www.twitch.tv/misspeggyx/clip/PatientShinyOilPMSTwin-DGlyqV8twp82RwY-)
+* [Stinky ham](https://www.twitch.tv/misspeggyx/clip/TenaciousBusyTitanTebowing-DInuN9v1Jy_bcEOS)
+* [Submissive and breedable](https://www.twitch.tv/misspeggyx/clip/IgnorantPoisedFennelOneHand-Maue9Yk2MW7Tf6Xf)
+* [In Sweden, it's illegal to be a criminal](https://www.twitch.tv/misspeggyx/clip/MoldyDepressedCardNotLikeThis-i-r8Ss8YWujajMMJ)
+* Bad Cheese [Ost](https://www.twitch.tv/misspeggyx/clip/AbrasiveIntelligentKumquatFrankerZ-UWMFOekK6jlKLXuo)
+* [Clear as hotdog water](https://www.twitch.tv/misspeggyx/clip/SavorySaltyGooseKappaPride-gskAsQ7lkvqwYvuE)
 
 
 # Funni giftsubs/usernames
@@ -155,20 +211,6 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Gimme 20cc of "wah" directly into my veins!](https://www.twitch.tv/misspeggyx/clip/SplendidTacitFalconTwitchRaid-g2LOcimANexdo443)
 
 
-# Peggy Sings
-
-* [Hey! Teacher! Put that dick away!](https://www.twitch.tv/misspeggyx/clip/SleepyTangentialPuddingTTours-eGQP51Y0HfBnyaCx?filter=clips&range=7d&sort=time)
-* Blood [When I was a young boy](https://www.twitch.tv/misspeggyx/clip/AbstemiousMoistHyenaBCouch-hd8d1LW1OYs7ZMKO?filter=clips&range=7d&sort=time)
-* [Spice Girls](https://www.twitch.tv/misspeggyx/clip/ImpossiblePlayfulBottleCopyThis-swEQYY6M3L_5-7ox?filter=clips&range=all&sort=time)
-* Thief [Stop, hammer time](https://www.twitch.tv/misspeggyx/clip/ToughNurturingZucchiniAMPTropPunch-GWLu3gQxUXo__D5g?filter=clips&range=all&sort=time)
-* The Cabin Factory [Rickroll 3](https://clips.twitch.tv/DeliciousFlaccidWolfWow-ZvgSD_l8QUAcYo_U)
-* Silent Hill 2 [You used to call me on my cell phone](https://clips.twitch.tv/PoorDullCaribouCoolCat-u5gAB0lZqww8PRRs)
-* [Miku Plasma](https://clips.twitch.tv/RealSilkyPizzaAMPEnergyCherry-pcfAJHntDwl4NkCc)
-* [Happy birthday in Swedish!](https://clips.twitch.tv/AveragePoliteOrcaCeilingCat-UtM-KaS30A7D794M)
-* [Caramelldansen](https://www.twitch.tv/misspeggyx/clip/TacitRacyLarkKlappa-0NGlmaozcM8Imhf8)
-* [Macarena](https://www.twitch.tv/misspeggyx/clip/BrainySpeedyJamShadyLulu-Kk9sHHDgL7UqB8af)
-
-
 # Peggy Facts
 
 * [Natural voice tone height](https://www.twitch.tv/misspeggyx/clip/GoldenEasyCrabFutureMan-xPz-7Rg18yOQ3JwV?filter=clips&range=7d&sort=time)
@@ -197,6 +239,8 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Christmas Massacre [Peggy falls into oblivion](https://clips.twitch.tv/PlacidTriangularShieldMoreCowbell-Z6NeHlyFeHHyeaVZ)
 * Christmas Massacre [BACK INTO THE VOID YOU GO](https://clips.twitch.tv/ManlyAgitatedDootKappaRoss-02-pzf1Go5Gh9BPb)
 * She Is Mad [Infinite wood!](https://www.twitch.tv/misspeggyx/clip/BillowingToughSoybeanTBCheesePull-dZFRrn5Kuv5n2svC)
+* FEAR [Ragdoll](https://www.twitch.tv/misspeggyx/clip/TastyColdKleeMrDestructoid-gK7PtiOTvkVmGmbo)
+* FEAR [Peggy's balls are too loud](https://www.twitch.tv/misspeggyx/clip/ComfortableGenerousMonitorANELE-WIamsAW4DIAX90U3)
 
 
 # Model shenanigans
@@ -237,34 +281,6 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [NO WAY A CATGIRL ON THE YEAR'S LAST STREAM](https://clips.twitch.tv/WrongEnticingHorseradishGrammarKing-wQHmdfl_msK2frkx)
 * [Lewd Travelling Fish Girl](https://clips.twitch.tv/VivaciousAggressiveWheelHumbleLife-H6sntABOKeGATWRZ)
 * The Cabin Factory [Reference to the original](https://clips.twitch.tv/VivaciousCuriousPonyChocolateRain-RK6_NEpEjuKzaPFe)
-
-
-# Swedish With Peggy
-
-* The Beacon's End [Äckelpäckel (something yucky)](https://www.twitch.tv/misspeggyx/clip/SavoryGiftedGarlicDuDudu-PRh4CK7Cv26qqkg0)
-* The Mortuary Assistant [Viper](https://www.twitch.tv/misspeggyx/clip/PoorCorrectOrcaKappaWealth-Gfy9_JTcHmILoN8T)
-* Silent Hill 2 [The word for island is Ö](https://clips.twitch.tv/BovineAnnoyingLeopardPeteZaroll-c6i7e4covdlITaY4)
-* Silent Hill 2 [ID = leg](https://clips.twitch.tv/DeterminedAliveWallabyMrDestructoid-5O8oRx2GuSKT-3kU)
-* Silent Hill 2 [Peggy swears in Finnish](https://www.twitch.tv/misspeggyx/clip/VenomousAstuteDaikonDAESuppy-yMLQWKHgoa3khQNs)
-* Silent Hill 2 [Peggy swears in Finnish 2](https://clips.twitch.tv/ShinyRockyMosquitoNinjaGrumpy-MEWsJMJ5n3vBCflg)
-* [Spinster](https://www.twitch.tv/misspeggyx/clip/BlightedTalentedPicklesPanicVis-wJ4UA5n1kgGxA8yT)
-* [In my breastless streams](https://www.twitch.tv/misspeggyx/clip/MildUgliestCobblerDendiFace-LDpfsBJNT-mWiyWD)
-* [Krokant = crispy](https://clips.twitch.tv/HonorableDeafChowderKappaPride-v1HLSgQnmf0C_0O-)
-* [2025](https://clips.twitch.tv/FantasticRockyRuffPogChamp-wNrx1jng-r7eZ4sW)
-* [Kitchen = kök](https://clips.twitch.tv/BeautifulImportantShrewJKanStyle-lLQUrCeBesVc2IW6)
-  * [You can eat Shrek in the cock](https://clips.twitch.tv/CourageousRacyMarrowPlanking-jqCSZuHssQoqH2iY)
-* [Toes](https://clips.twitch.tv/EntertainingNeighborlyMilkRuleFive-DKLVCUFv1sUKNPMe)
-* DP2 [@](https://www.twitch.tv/misspeggyx/clip/SpookySpicyChickenCharlieBitMe-8EyeTQ-FRO91JbXq)
-* Blood [Fluffy](https://www.twitch.tv/misspeggyx/clip/AggressiveCrowdedTrayTBTacoLeft-xpEeRmOHT3F7SkYl)
-* Blood [Cookie dough = caulk dick](https://www.twitch.tv/misspeggyx/clip/RichGoldenCroissantWutFace-wQLn6DNYGW3y5HXX)
-* FEAR [Swedish for fear is "rad slut"](https://www.twitch.tv/misspeggyx/clip/SwissResilientBearTBTacoRight-z4oDbjoOnhiU85Y4)
-* [Dump butt](https://www.twitch.tv/misspeggyx/clip/AgileProtectiveGrasshopperUncleNox-TCUWQiAlL4Zyp1Ye?filter=clips&range=7d&sort=time)
-* [Dump butt pt 2](https://www.twitch.tv/misspeggyx/clip/KawaiiTacitCamelDeIlluminati-T_D75vHGqK5UgKM_?filter=clips&range=7d&sort=time)
-* [Conductivity](https://www.twitch.tv/misspeggyx/clip/CourageousZealousTermiteBuddhaBar-2crEWRj-QKWfNee7?filter=clips&range=7d&sort=time)
-* [Mammoth](https://www.twitch.tv/misspeggyx/clip/GloriousIronicThymePartyTime--D4sljpAzDJsDYZi?filter=clips&range=7d&sort=time)
-* [Autism](https://www.twitch.tv/misspeggyx/clip/HeartlessExuberantPeafowlDAESuppy-xt__fPWNc3mHZbQf?filter=clips&range=30d&sort=time)
-* [Hair is whore..?!](https://www.twitch.tv/misspeggyx/clip/PatientShinyOilPMSTwin-DGlyqV8twp82RwY-)
-* [Stinky ham](https://www.twitch.tv/misspeggyx/clip/TenaciousBusyTitanTebowing-DInuN9v1Jy_bcEOS)
 
 
 # ADHD/autism moments
@@ -311,6 +327,8 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * Blood [darklingcide months later](https://www.twitch.tv/misspeggyx/clip/ArborealSincereClipzWutFace-nfXhSsctorG50Jhh)
 * [Cute encouragement speech!](https://www.twitch.tv/misspeggyx/clip/ThoughtfulModernBaconKappaClaus-OxCaPiQHPajROinE)
 * [CUTE: I can be your a-cute psychosis!](https://www.twitch.tv/misspeggyx/clip/ConsiderateDoubtfulKaleHumbleLife-5mQos7RZD-yGax1j)
+* [Quack quack motherfucker](https://www.twitch.tv/misspeggyx/clip/EndearingTalentedAyeayeSpicyBoy-5PEHVJzLaT7HfyT2)
+* [DARKSOWS SUED THE MOOMIN CREATOR](https://www.twitch.tv/misspeggyx/clip/ResoluteYummyTurtleKappaRoss-T8E58BZPecqEhfRQ)
 
 
 # Classic Peggy memes
@@ -342,8 +360,8 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 # Impressions & voice acting
 
 * Silent Hill 2 [Caleb from Blood - Single white female...](https://clips.twitch.tv/MoistDignifiedTortoiseAMPEnergyCherry-a2MjwLBQT1DbT-Vd)
-* The Mortuary Assistant [Awawawa](https://www.twitch.tv/misspeggyx/clip/CulturedFuriousCockroachTTours-POmEVKGBJ9XBPNLY){target="_blank"}
-* The Mortuary Assistant [MORE AWAWAWA](https://www.twitch.tv/misspeggyx/clip/AbnegateToughAppleTheRinger-7Klh09Rb2Pyl6meB){target="_blank
+* The Mortuary Assistant [Awawawa](https://www.twitch.tv/misspeggyx/clip/CulturedFuriousCockroachTTours-POmEVKGBJ9XBPNLY)"
+* The Mortuary Assistant [MORE AWAWAWA](https://www.twitch.tv/misspeggyx/clip/AbnegateToughAppleTheRinger-7Klh09Rb2Pyl6meB)
 * Silent Hill 2 [Yoshi: Revengeance](https://clips.twitch.tv/SuccessfulSilkyHyenaBabyRage-HGDhhWZy6hgApjaS)
 * Silent Hill 2 [It's time to kick ass and collect rings... And I'm all outta rings...](https://clips.twitch.tv/FaintKindLardMau5-XTKlIKrl1vzfQ6Kg)
 * Blood [Augh it's stuck](https://www.twitch.tv/misspeggyx/clip/BeautifulWittyWombatTriHard-o5vKxhX4QVGQAJg-)
@@ -355,7 +373,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 
 * Silent Hill 2 [Ah + greetings](https://www.twitch.tv/misspeggyx/clip/MuddyUnusualOwlDeIlluminati-ParbGClCDa57ACoI)
 * [Cheers in various languages](https://clips.twitch.tv/MotionlessDistinctTroutLitty-Y2gYaQSao9SJbE32)
-
+* [The perfect MISSPEGGYx intro](https://www.twitch.tv/misspeggyx/clip/HotImpossibleTurtleFunRun-_kJ_hFe7n1_mSlJ1) clipped by Schneckenhof
 
 # Shorts material
 
