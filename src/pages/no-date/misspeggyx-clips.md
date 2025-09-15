@@ -2,6 +2,7 @@
 
 If you happened to stumble across this page, then welcome! I collect MISSPEGGYx clips here and organize them according to various themes! When I got enough clips for a theme, they be turned into some nice edits for my [PEGGYx's Kitchen YouTube channel](https://www.youtube.com/@PEGGYsKitchen)!
 
+- [Keep the hype train going! We're NOT letting her piss!](#keep-the-hype-train-going-were-not-letting-her-piss)
 - [Sow noises](#sow-noises)
 - [Snusk moments part 3](#snusk-moments-part-3)
 - [Chat being chat](#chat-being-chat)
@@ -33,6 +34,16 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 - [Greetings, hello, bye and generally useful clips](#greetings-hello-bye-and-generally-useful-clips)
 - [Shorts material](#shorts-material)
 - [TO CHECK](#to-check)
+
+
+# Keep the hype train going! We're NOT letting her piss!
+
+https://www.twitch.tv/misspeggyx/clip/FastPreciousDolphinImGlitch-J2bfQFYZDQji9kER
+https://www.twitch.tv/misspeggyx/clip/HedonisticComfortableDoveUWot-eehiJDha_3lvNXFF
+https://www.twitch.tv/misspeggyx/clip/AuspiciousCoyVulturePlanking-p77KLclfnQaXqKt_
+https://www.twitch.tv/misspeggyx/clip/BigAthleticBorkSpicyBoy-eRfAaDy6KSwj25qv
+https://www.twitch.tv/misspeggyx/clip/ExuberantMoralWatermelonFrankerZ-2tCAWfm9mzuV4OfO
+https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPOv7n
 
 
 # Sow noises
@@ -91,6 +102,11 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [MYAAA!](https://www.twitch.tv/misspeggyx/clip/ImportantPricklyFlamingoHotPokket-JkrSh1zY4eyoAVPC)
 * ["just a little" chomping noises](https://www.twitch.tv/misspeggyx/clip/UninterestedSmokyShingleYouWHY-1YpAMBvVe4xlSHen)
 * [Hiccups 3D](https://www.twitch.tv/misspeggyx/clip/RichBitterCrowAliens-53eEHHSyfhOCpOti)
+* [Moan](https://www.twitch.tv/misspeggyx/clip/PricklyObliviousBananaDxCat-vEHFzopz1t53U6Qq)
+* [New yaa!](https://www.twitch.tv/misspeggyx/clip/ConcernedVastTrollArsonNoSexy-ScdPptss0Z7cIGq9)
+* [Cute sneeze!](https://www.twitch.tv/misspeggyx/clip/AveragePrettiestSaladAMPEnergy-OY0YCV21HkXmKPS-)
+* [Hydration ASMR](https://www.twitch.tv/misspeggyx/clip/FastPreciousDolphinImGlitch-J2bfQFYZDQji9kER)
+* [Excited yaa!](https://www.twitch.tv/misspeggyx/clip/RoundPleasantFloofSuperVinlin-lTqUr8KAbL7NhLLT)
 
 
 # Snusk moments part 3
@@ -172,6 +188,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Fredagsmys commercial for reference](https://www.twitch.tv/misspeggyx/clip/AlertCrepuscularEyeballCoolStoryBob-I28Hi6xRiRKzI2uK)
 * [MORE SINGING?](https://www.twitch.tv/misspeggyx/clip/IronicSmellyCoffeeWutFace-DqOzZhKAzEBm1F7r)
 * [Music talk](https://www.twitch.tv/misspeggyx/clip/GiftedFrozenFalconJKanStyle-G9w6DStvHO-VHrSr) <-- Make sure to check the bit before this where she lists her tastes!
+* MUSIC TALK HERE https://www.twitch.tv/videos/2564634045?t=0h25m30s
 
 
 # Swedish With Peggy
@@ -313,6 +330,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Lewd Travelling Fish Girl](https://clips.twitch.tv/VivaciousAggressiveWheelHumbleLife-H6sntABOKeGATWRZ)
 * The Cabin Factory [Reference to the original](https://clips.twitch.tv/VivaciousCuriousPonyChocolateRain-RK6_NEpEjuKzaPFe)
 * [Eldritch Cthulhu Girl](https://www.twitch.tv/misspeggyx/clip/AntsyAmusedTaroCoolStoryBro-Gd3jAPJ1QSe9YvnN)
+* [Morphi morphi nee!](https://www.twitch.tv/misspeggyx/clip/UninterestedAltruisticSaladUnSane-VPfSQPBS1L3EueEA)
 
 
 # ADHD/autism moments
