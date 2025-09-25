@@ -97,3 +97,37 @@
 * [Hey chat did you know? Urine is usually an acid](https://clips.twitch.tv/YummyNaiveTroutOMGScoots-61PV09CdM_umI9bC)
 * The Cabin Factory [uh i forgor](https://clips.twitch.tv/GentleAmorphousSrirachaPartyTime-B_iSJtnDknQzih1W)
 * [Svenska rizz (oh no stepbro, I'm stuck!)](https://www.twitch.tv/misspeggyx/clip/AbrasiveDiligentPonyAsianGlow-YDc1HD2CDyLWWlzX)
+
+
+# Peggy Sings
+
+* [Hey! Teacher! Put that dick away!](https://www.twitch.tv/misspeggyx/clip/SleepyTangentialPuddingTTours-eGQP51Y0HfBnyaCx?filter=clips&range=7d&sort=time)
+* Blood [When I was a young boy](https://www.twitch.tv/misspeggyx/clip/AbstemiousMoistHyenaBCouch-hd8d1LW1OYs7ZMKO?filter=clips&range=7d&sort=time)
+* [Spice Girls](https://www.twitch.tv/misspeggyx/clip/ImpossiblePlayfulBottleCopyThis-swEQYY6M3L_5-7ox?filter=clips&range=all&sort=time)
+* Thief [Stop, hammer time](https://www.twitch.tv/misspeggyx/clip/ToughNurturingZucchiniAMPTropPunch-GWLu3gQxUXo__D5g?filter=clips&range=all&sort=time)
+* The Cabin Factory [Rickroll 3](https://clips.twitch.tv/DeliciousFlaccidWolfWow-ZvgSD_l8QUAcYo_U)
+* Silent Hill 2 [You used to call me on my cell phone](https://clips.twitch.tv/PoorDullCaribouCoolCat-u5gAB0lZqww8PRRs)
+* [Miku Plasma](https://clips.twitch.tv/RealSilkyPizzaAMPEnergyCherry-pcfAJHntDwl4NkCc)
+* [Happy birthday in Swedish!](https://clips.twitch.tv/AveragePoliteOrcaCeilingCat-UtM-KaS30A7D794M)
+* [Caramelldansen](https://www.twitch.tv/misspeggyx/clip/TacitRacyLarkKlappa-0NGlmaozcM8Imhf8)
+* [Macarena](https://www.twitch.tv/misspeggyx/clip/BrainySpeedyJamShadyLulu-Kk9sHHDgL7UqB8af)
+* [Nobody wants to know where you bought your shirt 1](https://www.twitch.tv/misspeggyx/clip/TiredPlayfulBatSSSsss-IVJ2pVMR0Zkz-dWW)
+* [Nobody wants to know where you bought your shirt 2](https://www.twitch.tv/misspeggyx/clip/CrypticSmilingCocoaOhMyDog-BtKQ_Sp_lJ4QtzeS)
+* [Boom Boom Boom Boom](https://www.twitch.tv/misspeggyx/clip/DullAbrasiveTireCoolStoryBob-0Tc8b7JFAIYwVDbd)
+* [Somebody Once Told Me The World Was Gonna Roll Me](https://www.twitch.tv/misspeggyx/clip/FairEphemeralClamNotLikeThis-06gsPQGQq7ztnfRs)
+* [Thank God For Fredagspiss](https://www.twitch.tv/misspeggyx/clip/CoySparklySnakePermaSmug-hD_kL2A-DIlHgUNe)
+* [Such your own what](https://www.twitch.tv/misspeggyx/clip/SmallBlitheBurritoPJSugar-KTnoi5PopMsw-r3Z)
+* [Fredagsmys 2](https://www.twitch.tv/misspeggyx/clip/HilariousAverageDadDogFace-dBQfLdCNsb4eHEvr)
+* [Fredagsmys commercial for reference](https://www.twitch.tv/misspeggyx/clip/AlertCrepuscularEyeballCoolStoryBob-I28Hi6xRiRKzI2uK)
+* [MORE SINGING?](https://www.twitch.tv/misspeggyx/clip/IronicSmellyCoffeeWutFace-DqOzZhKAzEBm1F7r)
+* [Music talk](https://www.twitch.tv/misspeggyx/clip/GiftedFrozenFalconJKanStyle-G9w6DStvHO-VHrSr) <-- Make sure to check the bit before this where she lists her tastes!
+* MUSIC TALK HERE https://www.twitch.tv/videos/2564634045?t=0h25m30s
+
+* [Disturbed (the band)](https://clips.twitch.tv/NaiveColdLeopardDeIlluminati-QtXwiaNo_lkkC19h?tt_content=url&tt_medium=clips_api)
+* [Swedish happy birthday!](https://clips.twitch.tv/ExquisiteIronicFishDoritosChip-TAr-JWfRTg4m5Yvy?tt_content=url&tt_medium=clips_api)
+* [Mr Sandman](https://clips.twitch.tv/GoldenSpeedyWasabiMrDestructoid-qDJ6iOsoiQKSGTOo?tt_content=url&tt_medium=clips_api)
+* https://www.twitch.tv/misspeggyx/clip/BlatantThankfulDragonVoteNay-9CeLcqqs4b9_5-oH
+* https://www.twitch.tv/misspeggyx/clip/BlitheAgreeableSowPrimeMe-L2v4Xx0y9L18wM2F
+* https://www.twitch.tv/misspeggyx/clip/SmoothAdventurousNostrilBibleThump-lA9nvTgwdRvSQpl2
+* https://www.twitch.tv/misspeggyx/clip/LachrymoseArtisticDaikonGOWSkull-EFnQNg-Cgko5BbCN
+* https://www.twitch.tv/misspeggyx/clip/SaltySlipperySalmonBuddhaBar-jZjslQTdv3Z22YUE

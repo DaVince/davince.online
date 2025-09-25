@@ -6,7 +6,6 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 - [Sow noises](#sow-noises)
 - [Snusk moments part 3](#snusk-moments-part-3)
 - [Chat being chat](#chat-being-chat)
-- [Peggy Sings](#peggy-sings)
 - [Swedish With Peggy](#swedish-with-peggy)
 - [Funni giftsubs/usernames](#funni-giftsubsusernames)
 - [Perfect timing](#perfect-timing)
@@ -112,6 +111,7 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [AaAaaAAaaAAAaAaaAAAaaAAAAAaaaA...](https://clips.twitch.tv/SuperDirtySwallowVoHiYo-x4TAT91iIPsxNxgB?tt_content=url&tt_medium=clips_api)
 * [Monkey Peggy want banana](https://clips.twitch.tv/BigCulturedButterOSkomodo-P5V7k-kkp7PT7Lp-?tt_content=url&tt_medium=clips_api)
 * [WHOAOOW (at the end)](https://clips.twitch.tv/ColorfulExuberantBearPanicVis-sLdUgDDz_uRwzfxN?tt_content=url&tt_medium=clips_api)
+* ["Witch" sounds](https://www.twitch.tv/misspeggyx/clip/ShortAliveGullHassanChop-hnPDXs1LLkaL34pI)
 
 
 # Snusk moments part 3
@@ -153,6 +153,9 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * Rusty Lake: Roots [casually popping out 3 babies](https://www.twitch.tv/misspeggyx/clip/WildDelightfulSlothBibleThump-tC0FMXm9IObI_YL_)
 * [Use hand on myself](https://www.twitch.tv/misspeggyx/clip/GeniusSwissOtterWOOP-ih8mBQpqGVPW23ls)
 * Infinite Craft [Why can't I impregnate Dracula?](https://clips.twitch.tv/WealthyWonderfulRutabagaBrainSlug-hSg89L5KvjMQBKKh?tt_content=url&tt_medium=clips_api)
+* No, I'm Not A Human [Peggy checking armpit](https://www.twitch.tv/misspeggyx/clip/WittyPolishedDeerCeilingCat-bXuLO2lNfmSSWM3j)
+* [The pocket that men have between the weewoo and the beans](https://www.twitch.tv/misspeggyx/clip/PhilanthropicHeadstrongMartenKappaWealth-RRvFpRJYPlceS7mV)
+* [PENETRATION TIME!](https://www.twitch.tv/misspeggyx/clip/EvilColdPotGOWSkull-dpgZKWa8aatOEoDl)
 
 
 # Chat being chat
@@ -177,35 +180,6 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [Would you interlock toes with a girl?](https://clips.twitch.tv/SourStupidNeanderthalWoofer-5j9tTQ-iB_Lekcl3?tt_content=url&tt_medium=clips_api)
 * [The term ani- never mind](https://clips.twitch.tv/PatientWimpyCoffeeJebaited-MwU2q1GGN6lm2Lzb?tt_content=url&tt_medium=clips_api)
 * [Chat makes Peggy pregnant](https://clips.twitch.tv/DoubtfulSarcasticDinosaurWoofer-iX66Wrx4upewdr_I?tt_content=url&tt_medium=clips_api)
-
-
-# Peggy Sings
-
-* [Hey! Teacher! Put that dick away!](https://www.twitch.tv/misspeggyx/clip/SleepyTangentialPuddingTTours-eGQP51Y0HfBnyaCx?filter=clips&range=7d&sort=time)
-* Blood [When I was a young boy](https://www.twitch.tv/misspeggyx/clip/AbstemiousMoistHyenaBCouch-hd8d1LW1OYs7ZMKO?filter=clips&range=7d&sort=time)
-* [Spice Girls](https://www.twitch.tv/misspeggyx/clip/ImpossiblePlayfulBottleCopyThis-swEQYY6M3L_5-7ox?filter=clips&range=all&sort=time)
-* Thief [Stop, hammer time](https://www.twitch.tv/misspeggyx/clip/ToughNurturingZucchiniAMPTropPunch-GWLu3gQxUXo__D5g?filter=clips&range=all&sort=time)
-* The Cabin Factory [Rickroll 3](https://clips.twitch.tv/DeliciousFlaccidWolfWow-ZvgSD_l8QUAcYo_U)
-* Silent Hill 2 [You used to call me on my cell phone](https://clips.twitch.tv/PoorDullCaribouCoolCat-u5gAB0lZqww8PRRs)
-* [Miku Plasma](https://clips.twitch.tv/RealSilkyPizzaAMPEnergyCherry-pcfAJHntDwl4NkCc)
-* [Happy birthday in Swedish!](https://clips.twitch.tv/AveragePoliteOrcaCeilingCat-UtM-KaS30A7D794M)
-* [Caramelldansen](https://www.twitch.tv/misspeggyx/clip/TacitRacyLarkKlappa-0NGlmaozcM8Imhf8)
-* [Macarena](https://www.twitch.tv/misspeggyx/clip/BrainySpeedyJamShadyLulu-Kk9sHHDgL7UqB8af)
-* [Nobody wants to know where you bought your shirt 1](https://www.twitch.tv/misspeggyx/clip/TiredPlayfulBatSSSsss-IVJ2pVMR0Zkz-dWW)
-* [Nobody wants to know where you bought your shirt 2](https://www.twitch.tv/misspeggyx/clip/CrypticSmilingCocoaOhMyDog-BtKQ_Sp_lJ4QtzeS)
-* [Boom Boom Boom Boom](https://www.twitch.tv/misspeggyx/clip/DullAbrasiveTireCoolStoryBob-0Tc8b7JFAIYwVDbd)
-* [Somebody Once Told Me The World Was Gonna Roll Me](https://www.twitch.tv/misspeggyx/clip/FairEphemeralClamNotLikeThis-06gsPQGQq7ztnfRs)
-* [Thank God For Fredagspiss](https://www.twitch.tv/misspeggyx/clip/CoySparklySnakePermaSmug-hD_kL2A-DIlHgUNe)
-* [Such your own what](https://www.twitch.tv/misspeggyx/clip/SmallBlitheBurritoPJSugar-KTnoi5PopMsw-r3Z)
-* [Fredagsmys 2](https://www.twitch.tv/misspeggyx/clip/HilariousAverageDadDogFace-dBQfLdCNsb4eHEvr)
-* [Fredagsmys commercial for reference](https://www.twitch.tv/misspeggyx/clip/AlertCrepuscularEyeballCoolStoryBob-I28Hi6xRiRKzI2uK)
-* [MORE SINGING?](https://www.twitch.tv/misspeggyx/clip/IronicSmellyCoffeeWutFace-DqOzZhKAzEBm1F7r)
-* [Music talk](https://www.twitch.tv/misspeggyx/clip/GiftedFrozenFalconJKanStyle-G9w6DStvHO-VHrSr) <-- Make sure to check the bit before this where she lists her tastes!
-* MUSIC TALK HERE https://www.twitch.tv/videos/2564634045?t=0h25m30s
-
-* [Disturbed (the band)](https://clips.twitch.tv/NaiveColdLeopardDeIlluminati-QtXwiaNo_lkkC19h?tt_content=url&tt_medium=clips_api)
-* [Swedish happy birthday!](https://clips.twitch.tv/ExquisiteIronicFishDoritosChip-TAr-JWfRTg4m5Yvy?tt_content=url&tt_medium=clips_api)
-* [Mr Sandman](https://clips.twitch.tv/GoldenSpeedyWasabiMrDestructoid-qDJ6iOsoiQKSGTOo?tt_content=url&tt_medium=clips_api)
 
 
 # Swedish With Peggy
@@ -241,6 +215,11 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [In my breastless streams (Swedish Edition)](https://clips.twitch.tv/MildUgliestCobblerDendiFace-LDpfsBJNT-mWiyWD?tt_content=url&tt_medium=clips_api)
 * [Lingonberry jam](https://clips.twitch.tv/CautiousLongKumquatYouWHY-HndEmFfIcmnf0KEL?tt_content=url&tt_medium=clips_api)
 * [Urgammal fröken Peggy (unmarried ancient hag)](https://clips.twitch.tv/BlushingVainChimpanzeeOhMyDog-y0F8tTvRhr0E8Juu?tt_content=url&tt_medium=clips_api)
+* No, I'm Not A Human [Huh?](https://www.twitch.tv/misspeggyx/clip/ModernDarlingBeanKappaRoss-317-U41A8Pki-Euw)
+* No, I'm Not A Human [Visitor](https://www.twitch.tv/misspeggyx/clip/SincereScrumptiousPangolinPJSugar-JENxq-JlS_GuEjuD)
+* No, I'm Not A Human [Teeth](https://www.twitch.tv/misspeggyx/clip/HumbleClearSageBCouch-YqLNWdQYm8r1-QT5)
+* No, I'm Not A Human [Fetus](https://www.twitch.tv/misspeggyx/clip/RepleteHeadstrongSandstormKippa-5dj_dOO2RyztTYtY)
+* No, I'm Not A Human [LET ME IN LET ME IN LET ME IN](https://www.twitch.tv/misspeggyx/clip/SmallStrangeMangetoutPupper-pbrWopwkbLzV03XN)
 
 
 # Funni giftsubs/usernames
@@ -255,6 +234,7 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [spankmedaddy69](https://clips.twitch.tv/TiredPrettiestPlumageNononoCat-yhuJaspm_hMmobw6)
 * [onlyfans_misspeggyx_feet](https://clips.twitch.tv/GenerousPunchyBaguetteAllenHuhu-XlXl_5ZXvUOixk-V?tt_content=url&tt_medium=clips_api)
 * [stinky_harlot](https://clips.twitch.tv/CautiousLongKumquatYouWHY-HndEmFfIcmnf0KEL?tt_content=url&tt_medium=clips_api)
+* No, I Am Not A Human [Kombucha](https://www.twitch.tv/misspeggyx/clip/StupidSpinelessFriesBIRB-1PzQz2YHFnYTHNAY)
 
 
 # Perfect timing
@@ -313,7 +293,10 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * FEAR [Peggy's balls are too loud](https://www.twitch.tv/misspeggyx/clip/ComfortableGenerousMonitorANELE-WIamsAW4DIAX90U3)
 * Thief [GUARD STUCK](https://clips.twitch.tv/PeacefulAcceptableKittenDerp-anlcB3bWWeG5CbFi?tt_content=url&tt_medium=clips_api)
 * DP2 [CLG stuck]
-
+* Thief [Mister? You forgot to kill me!](https://www.twitch.tv/misspeggyx/clip/FilthySavoryLardKreygasm-86LHHxY57PHfD8PK)
+  * [He might be legally blind...](https://www.twitch.tv/misspeggyx/clip/DrabDreamyGazelleWOOP--3eNVDXr8rKNdpl6)
+* Thief [A nice clean breakaway!](https://www.twitch.tv/misspeggyx/clip/ZanyAssiduousSpaghettiTheRinger-19JT38x3azo84Dvm)
+  * Check a little earlier to see how she just drops into an area she's not supposed to be in!
 
 # Model shenanigans
 
@@ -406,6 +389,7 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * Thief [I will throw a sack on you](https://www.twitch.tv/misspeggyx/clip/MoistSpunkyChipmunkDatSheffy-WFB7EDuuZBUpqSAE?filter=clips&range=all&sort=time)
 * The Cabin Factory [Peggy Wins!](https://www.twitch.tv/misspeggyx/clip/ExpensiveLovelyOpossumMrDestructoid-h38Zo3BcxwxJZJFo)
 * Christmas Massacre [Coming in CLUTCH](https://clips.twitch.tv/BombasticTenaciousPastaPunchTrees-xNvd7ZPSewwF6wfV) Note: it happened twice, once a little before this as well
+* No, I'm Not A Human [No casualties in week 1!](https://www.twitch.tv/misspeggyx/clip/SplendidWiseSmoothieStinkyCheese-oQB5VjS_RPJn224f)
 
 
 # With/from other streamers
@@ -490,6 +474,7 @@ Sort out good clips with Alfie:
 * Silent Hill 2 [Ah + greetings](https://www.twitch.tv/misspeggyx/clip/MuddyUnusualOwlDeIlluminati-ParbGClCDa57ACoI)
 * [Cheers in various languages](https://clips.twitch.tv/MotionlessDistinctTroutLitty-Y2gYaQSao9SJbE32)
 * [The perfect MISSPEGGYx intro](https://www.twitch.tv/misspeggyx/clip/HotImpossibleTurtleFunRun-_kJ_hFe7n1_mSlJ1) clipped by Schneckenhof
+* [THE PERFECT INTRO AGAIN](https://www.twitch.tv/misspeggyx/clip/ResourcefulLitigiousJackalShadyLulu-w1CtA_LPyGJf0ISR)
 
 
 # Shorts material
