@@ -112,6 +112,7 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [Monkey Peggy want banana](https://clips.twitch.tv/BigCulturedButterOSkomodo-P5V7k-kkp7PT7Lp-?tt_content=url&tt_medium=clips_api)
 * [WHOAOOW (at the end)](https://clips.twitch.tv/ColorfulExuberantBearPanicVis-sLdUgDDz_uRwzfxN?tt_content=url&tt_medium=clips_api)
 * ["Witch" sounds](https://www.twitch.tv/misspeggyx/clip/ShortAliveGullHassanChop-hnPDXs1LLkaL34pI)
+* [From MammalianHybrid](https://www.twitch.tv/misspeggyx/clip/SourInquisitiveHerbsTakeNRG-weLh-4IaYJ1jONCS)
 
 
 # Snusk moments part 3
@@ -156,11 +157,14 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * No, I'm Not A Human [Peggy checking armpit](https://www.twitch.tv/misspeggyx/clip/WittyPolishedDeerCeilingCat-bXuLO2lNfmSSWM3j)
 * [The pocket that men have between the weewoo and the beans](https://www.twitch.tv/misspeggyx/clip/PhilanthropicHeadstrongMartenKappaWealth-RRvFpRJYPlceS7mV)
 * [PENETRATION TIME!](https://www.twitch.tv/misspeggyx/clip/EvilColdPotGOWSkull-dpgZKWa8aatOEoDl)
+* [Eat her (out)](https://www.twitch.tv/misspeggyx/clip/DreamyColdbloodedOryxSmoocherZ-83fHD7V5xVc4OQYC)
+* Thief 2 [Hear me out, chat (Evangelion)](https://www.twitch.tv/misspeggyx/clip/SmoothKawaiiPidgeonDBstyle-IvFtUHzuI1J3UQDz)
+* Thief 2 [Ready to get vored?](https://www.twitch.tv/misspeggyx/clip/ScrumptiousKnottyLorisJKanStyle-AumXct7vZqfCF7b1)
 
 
 # Chat being chat
 
-* Phasmophobia with Alfhilde [Peggy keeps one pair of lips on screen at all times](https://youtu.be/cXJtKQsjNTs?t=1374)
+* Phasmophobia with Alfhilde [Peggy keeps one pair of lips on screen at all times](https://youtu.be/cXJtKQsjNTs?t=1374) 22:55
 * Silent Hill 2 [Twitch chat makes me PREGNANT](https://www.twitch.tv/misspeggyx/clip/JoyousSwissNeanderthalWholeWheat-OuJ7q57PrTt-XMUb)
 * Just Chatting [PEGGY IS BECOMING PREGNANT OH NO](https://clips.twitch.tv/TameCheerfulMacaroniBuddhaBar-ZmrknFQSqDd-BjNK)
 * Just Chatting [CHAT MAKING PEGGY PREGNANT](https://www.twitch.tv/misspeggyx/clip/DoubtfulSarcasticDinosaurWoofer-iX66Wrx4upewdr_I)
@@ -179,7 +183,6 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [Sawcon](https://clips.twitch.tv/PerfectSquareCiderYouWHY-xLgHLgd8Fu7F9D-p?tt_content=url&tt_medium=clips_api)
 * [Would you interlock toes with a girl?](https://clips.twitch.tv/SourStupidNeanderthalWoofer-5j9tTQ-iB_Lekcl3?tt_content=url&tt_medium=clips_api)
 * [The term ani- never mind](https://clips.twitch.tv/PatientWimpyCoffeeJebaited-MwU2q1GGN6lm2Lzb?tt_content=url&tt_medium=clips_api)
-* [Chat makes Peggy pregnant](https://clips.twitch.tv/DoubtfulSarcasticDinosaurWoofer-iX66Wrx4upewdr_I?tt_content=url&tt_medium=clips_api)
 
 
 # Swedish With Peggy
@@ -220,6 +223,9 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * No, I'm Not A Human [Teeth](https://www.twitch.tv/misspeggyx/clip/HumbleClearSageBCouch-YqLNWdQYm8r1-QT5)
 * No, I'm Not A Human [Fetus](https://www.twitch.tv/misspeggyx/clip/RepleteHeadstrongSandstormKippa-5dj_dOO2RyztTYtY)
 * No, I'm Not A Human [LET ME IN LET ME IN LET ME IN](https://www.twitch.tv/misspeggyx/clip/SmallStrangeMangetoutPupper-pbrWopwkbLzV03XN)
+* [Smegma](https://www.twitch.tv/misspeggyx/clip/PrettyTamePoultryTBCheesePull-yUbMdCgoFI0riSMe)
+* Grow a Girlfriend [Magic mushroom](https://www.twitch.tv/misspeggyx/clip/FairPlumpConsoleOneHand-t5BFOJVNn2-YBPTL)
+* Grow a Girlfriend [Growing a girlfriend]()
 
 
 # Funni giftsubs/usernames
@@ -341,6 +347,10 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 
 
 # Lewd travelling cat girl (neeko neeko nee)
+
+Origin from the LEGO Piranha plant streams??? (Says Azu)
+* [Stream 1](https://www.youtube.com/watch?v=nybjy0Na278)
+* [Stream 2](https://www.youtube.com/watch?v=GKaL_CjRSrk)
 
 * Pixel Peggy reveal [During BALD TOGGLE](https://www.twitch.tv/misspeggyx/clip/KawaiiEncouragingWebMikeHogu-5NXc8BhqEUaoECJV?filter=clips&range=all&sort=time)
 * Just Chatting [A regular travelling cat girl](https://www.twitch.tv/misspeggyx/clip/TubularWiseKoupreyDuDudu-FyGUekllJvIUpu8C?filter=clips&range=all&sort=time)
