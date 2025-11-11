@@ -2,6 +2,7 @@
 
 If you happened to stumble across this page, then welcome! I collect MISSPEGGYx clips here and organize them according to various themes! When I got enough clips for a theme, they be turned into some nice edits for my [PEGGYx's Kitchen YouTube channel](https://www.youtube.com/@PEGGYsKitchen)!
 
+- [NEXT VIDEOS](#next-videos)
 - [Keep the hype train going! We're NOT letting her piss!](#keep-the-hype-train-going-were-not-letting-her-piss)
 - [Sow noises](#sow-noises)
 - [Snusk moments part 3](#snusk-moments-part-3)
@@ -23,18 +24,24 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 - [Peggy is "good" at games / deaths](#peggy-is-good-at-games--deaths)
 - [Peggy actually being good at games](#peggy-actually-being-good-at-games)
 - [With/from other streamers](#withfrom-other-streamers)
-- [Mispronouncing things](#mispronouncing-things)
+- [Mispronouncing things (Peggy can speak words)](#mispronouncing-things-peggy-can-speak-words)
 - [Misc](#misc)
 - [Classic Peggy memes](#classic-peggy-memes)
 - [Peggy Returns](#peggy-returns)
 - [Cake](#cake)
-- [ASMR](#asmr)
 - [Sweet community moments!](#sweet-community-moments)
 - [Impressions \& voice acting](#impressions--voice-acting)
-- [PISS](#piss)
 - [Greetings, hello, bye and generally useful clips](#greetings-hello-bye-and-generally-useful-clips)
 - [Shorts material](#shorts-material)
 - [TO CHECK](#to-check)
+- [(To sort) Jackbox stream!!!](#to-sort-jackbox-stream)
+- [Ao Oni](#ao-oni)
+
+# NEXT VIDEOS
+
+- Peggy noises 2
+- For Halloween: 2 hours of distant darksow noises in the woods (ambient) (ASMR) (horror)
+- For new years: 2024 recap
 
 
 # Keep the hype train going! We're NOT letting her piss!
@@ -113,6 +120,12 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [WHOAOOW (at the end)](https://clips.twitch.tv/ColorfulExuberantBearPanicVis-sLdUgDDz_uRwzfxN?tt_content=url&tt_medium=clips_api)
 * ["Witch" sounds](https://www.twitch.tv/misspeggyx/clip/ShortAliveGullHassanChop-hnPDXs1LLkaL34pI)
 * [From MammalianHybrid](https://www.twitch.tv/misspeggyx/clip/SourInquisitiveHerbsTakeNRG-weLh-4IaYJ1jONCS)
+* [New MEW](https://www.twitch.tv/misspeggyx/clip/EnticingBadEggplantKappaRoss-NFptW7uQ2PAy--Ja)
+* [excited darksow gibbering](https://www.twitch.tv/misspeggyx/clip/LovelyEasyAyeayeSoonerLater-BHCtEOFcg9pJDTlF)
+* MiSide Part 1 1:28:46 CRAZY SQUEAK
+* [Nani?!](https://www.twitch.tv/misspeggyx/clip/DepressedCallousMouseOptimizePrime-x-tZf1KFXH5e-ca2)
+* [Whale noises](https://discord.com/channels/1081142021944770631/1354148212172128256/1436404557772230737)
+* [Ah](https://www.twitch.tv/misspeggyx/clip/ThoughtfulToughGazelleSuperVinlin-JXOYH5z14IZFUxJL)
 
 
 # Snusk moments part 3
@@ -160,6 +173,13 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [Eat her (out)](https://www.twitch.tv/misspeggyx/clip/DreamyColdbloodedOryxSmoocherZ-83fHD7V5xVc4OQYC)
 * Thief 2 [Hear me out, chat (Evangelion)](https://www.twitch.tv/misspeggyx/clip/SmoothKawaiiPidgeonDBstyle-IvFtUHzuI1J3UQDz)
 * Thief 2 [Ready to get vored?](https://www.twitch.tv/misspeggyx/clip/ScrumptiousKnottyLorisJKanStyle-AumXct7vZqfCF7b1)
+* Thief 2 [That web developer rizz](https://www.twitch.tv/misspeggyx/clip/ClumsyInnocentGaurBlargNaut-x-f-U8WNSg8_Oekl)
+* Thief 2 [harder...](https://www.twitch.tv/misspeggyx/clip/AntsyTenaciousAlmondUncleNox-cmtajpv4ODtYqUUj)
+* Thief 2 [all the noises that femboy just made](https://www.twitch.tv/misspeggyx/clip/CoyDrabChickenImGlitch-gqJNdibNg5-RGVAR)
+* Thief 2 [When you deepthroat and...](https://www.twitch.tv/misspeggyx/clip/EnchantingAbnegateLatteCharlieBitMe-luPnEGoxjWZSNBsB)
+* Thief 2 [I'd love to voice act grunts. Not a gooner, but...](https://www.twitch.tv/misspeggyx/clip/SuaveStylishLasagnaSMOrc-viiO_g-RC-uUCwy7)
+* [Let's get railed...](https://www.twitch.tv/misspeggyx/clip/NastyBreakableMulePastaThat-QKFnZZDHZ2o1W6Uk)
+* [Noises she's never made before!](https://www.twitch.tv/misspeggyx/clip/SneakyLitigiousParrotBloodTrail-x1RmGn4wOxPC3k0Q)
 
 
 # Chat being chat
@@ -183,6 +203,8 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [Sawcon](https://clips.twitch.tv/PerfectSquareCiderYouWHY-xLgHLgd8Fu7F9D-p?tt_content=url&tt_medium=clips_api)
 * [Would you interlock toes with a girl?](https://clips.twitch.tv/SourStupidNeanderthalWoofer-5j9tTQ-iB_Lekcl3?tt_content=url&tt_medium=clips_api)
 * [The term ani- never mind](https://clips.twitch.tv/PatientWimpyCoffeeJebaited-MwU2q1GGN6lm2Lzb?tt_content=url&tt_medium=clips_api)
+* [all the noises that femboy just made](https://www.twitch.tv/misspeggyx/clip/CoyDrabChickenImGlitch-gqJNdibNg5-RGVAR)
+* [The chef is in the kitchen baking biscuits with his cock out](https://www.twitch.tv/misspeggyx/clip/RockyGenerousLlamaCoolStoryBro-DLA2V9wcaczVs7Cb)
 
 
 # Swedish With Peggy
@@ -241,6 +263,8 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [onlyfans_misspeggyx_feet](https://clips.twitch.tv/GenerousPunchyBaguetteAllenHuhu-XlXl_5ZXvUOixk-V?tt_content=url&tt_medium=clips_api)
 * [stinky_harlot](https://clips.twitch.tv/CautiousLongKumquatYouWHY-HndEmFfIcmnf0KEL?tt_content=url&tt_medium=clips_api)
 * No, I Am Not A Human [Kombucha](https://www.twitch.tv/misspeggyx/clip/StupidSpinelessFriesBIRB-1PzQz2YHFnYTHNAY)
+* [Stinkybottom](https://www.twitch.tv/misspeggyx/clip/RamshackleIncredulousFerretDancingBaby-VRnDciDf722fKx6L)
+* [IKEA](https://www.twitch.tv/misspeggyx/clip/CrypticStupidFoxPartyTime-UPhid3YYt-U6HZOM)
 
 
 # Perfect timing
@@ -254,6 +278,7 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [NOT THE SHOWER!!](https://www.twitch.tv/misspeggyx/clip/FrailAuspiciousWalrusThunBeast-aI-pIsaQp5GEegtO)
 * [CAN'T STOP PISSING](https://clips.twitch.tv/ExuberantMoralWatermelonFrankerZ-2tCAWfm9mzuV4OfO?tt_content=url&tt_medium=clips_api)
 * [Mouth and lips](https://clips.twitch.tv/TenderYummyWormTwitchRPG-u8iGChsCWDj81B0j?tt_content=url&tt_medium=clips_api)
+* [Ara ara...](https://www.twitch.tv/misspeggyx/clip/WittyPleasantCoyoteDoubleRainbow-4xObP8MnDKzVR_e2)
 
 
 # Funni moments
@@ -303,6 +328,8 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
   * [He might be legally blind...](https://www.twitch.tv/misspeggyx/clip/DrabDreamyGazelleWOOP--3eNVDXr8rKNdpl6)
 * Thief [A nice clean breakaway!](https://www.twitch.tv/misspeggyx/clip/ZanyAssiduousSpaghettiTheRinger-19JT38x3azo84Dvm)
   * Check a little earlier to see how she just drops into an area she's not supposed to be in!
+* Silent Hill f [Enemy stuck dying](https://www.twitch.tv/misspeggyx/clip/ShortSarcasticSwallowShadyLulu-bmdKcucaReLVhkzm)
+
 
 # Model shenanigans
 
@@ -333,6 +360,15 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [Loslizards THIRD SHOWER REDEEM](https://www.twitch.tv/misspeggyx/clip/CharmingPoliteBeanUnSane-kecTettmm87IKebf)
 * [Bjoorn gifting 100 subs!!](https://clips.twitch.tv/YummyArtisticNewtAllenHuhu-WCTnqzR5JQMx1PVQ?tt_content=url&tt_medium=clips_api)
 * [Peggy shows off her model to Alfi!](https://clips.twitch.tv/RudeGeniusSalsifyPhilosoraptor-UpGGmoR2GfW3Z4_H)
+* [MammalianHybrid SEVENTH SHOWER REDEEM](https://www.twitch.tv/misspeggyx/clip/CogentLachrymoseOkapiAliens-2L_QUUfc5I-w0edW)
+* Twintals preview!
+  * https://www.twitch.tv/misspeggyx/clip/CourageousAbrasiveHummingbirdKevinTurtle-ak-ufx2ET_0pEWew
+  * https://www.twitch.tv/misspeggyx/clip/SweetDreamyTubersStinkyCheese-mvg4jeNJgIxzJBXL
+  * https://www.twitch.tv/misspeggyx/clip/EnthusiasticEagerGrouseNinjaGrumpy-4m5pPKAKqX7vCxqu
+* Low Poly Peggy reveal!!
+  * https://www.twitch.tv/misspeggyx/clip/JazzyRockyWebKeyboardCat-y178Q8qemgOHFA7z
+  * https://www.twitch.tv/misspeggyx/clip/TubularTenuousMagpiePhilosoraptor-9pHjsotR-a2ojAPl
+
 
 * [Not a reveal, but her old chibi model](https://clips.twitch.tv/StormySavoryDragonflyPlanking-yIEw5WhfXtAFqb8S)
 * [Not a reveal, but her old chibi model 2](https://clips.twitch.tv/SmoothPlumpAntelopeCeilingCat-h9xkrcQ7urgK3huv)
@@ -351,6 +387,8 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 Origin from the LEGO Piranha plant streams??? (Says Azu)
 * [Stream 1](https://www.youtube.com/watch?v=nybjy0Na278)
 * [Stream 2](https://www.youtube.com/watch?v=GKaL_CjRSrk)
+  * 2:20:03 (the catgirl visits)
+  * 2:26:41 (the copypasta starts!)
 
 * Pixel Peggy reveal [During BALD TOGGLE](https://www.twitch.tv/misspeggyx/clip/KawaiiEncouragingWebMikeHogu-5NXc8BhqEUaoECJV?filter=clips&range=all&sort=time)
 * Just Chatting [A regular travelling cat girl](https://www.twitch.tv/misspeggyx/clip/TubularWiseKoupreyDuDudu-FyGUekllJvIUpu8C?filter=clips&range=all&sort=time)
@@ -400,12 +438,13 @@ Origin from the LEGO Piranha plant streams??? (Says Azu)
 * The Cabin Factory [Peggy Wins!](https://www.twitch.tv/misspeggyx/clip/ExpensiveLovelyOpossumMrDestructoid-h38Zo3BcxwxJZJFo)
 * Christmas Massacre [Coming in CLUTCH](https://clips.twitch.tv/BombasticTenaciousPastaPunchTrees-xNvd7ZPSewwF6wfV) Note: it happened twice, once a little before this as well
 * No, I'm Not A Human [No casualties in week 1!](https://www.twitch.tv/misspeggyx/clip/SplendidWiseSmoothieStinkyCheese-oQB5VjS_RPJn224f)
+* Jackbox [Peggy wins Trivia Murder Night!](https://www.twitch.tv/misspeggyx/clip/ConfidentCaringWheelFeelsBadMan-XwYlmtZukAP3gi93)
 
 
 # With/from other streamers
 
 * [Maveth: peg now, peg now!](https://www.twitch.tv/mavethvt/clip/ThoughtfulCallousFrogMoreCowbell-SwS64IOHKGa-saXg)
-* [Models zooming around during collab with Alfhilde and (shit I forgot)](https://www.twitch.tv/alfhilde/clip/StormyHardAlligatorDatSheffy-NAZECCYhQd8-vO3E)
+* [Models zooming around during collab with Alfhilde and (Bino?)](https://www.twitch.tv/alfhilde/clip/StormyHardAlligatorDatSheffy-NAZECCYhQd8-vO3E)
 
 Sort out good clips with Alfie:
 * [Cheese, wine and anime until she falls asleep](https://clips.twitch.tv/KindCovertKoupreyTinyFace-Uopz3dXMbzJfdO0r?tt_content=url&tt_medium=clips_api)
@@ -413,10 +452,10 @@ Sort out good clips with Alfie:
 * https://clips.twitch.tv/RudeGeniusSalsifyPhilosoraptor-UpGGmoR2GfW3Z4_H
 
 
-# Mispronouncing things
+# Mispronouncing things (Peggy can speak words)
 
 * [Antihipopopopopopop](https://clips.twitch.tv/PolishedSteamyMinkPJSalt-wJi9-76AVoZk52jA?tt_content=url&tt_medium=clips_api)
-* 
+* [Patriarchal](https://www.twitch.tv/misspeggyx/clip/DaintyTenaciousBorkGivePLZ-QBGxMTcKdgJXPDui)
 
 
 # Misc
@@ -431,7 +470,7 @@ Sort out good clips with Alfie:
 * [CUTE: I can be your a-cute psychosis!](https://www.twitch.tv/misspeggyx/clip/ConsiderateDoubtfulKaleHumbleLife-5mQos7RZD-yGax1j)
 * [Quack quack motherfucker](https://www.twitch.tv/misspeggyx/clip/EndearingTalentedAyeayeSpicyBoy-5PEHVJzLaT7HfyT2)
 * [DARKSOWS SUED THE MOOMIN CREATOR](https://www.twitch.tv/misspeggyx/clip/ResoluteYummyTurtleKappaRoss-T8E58BZPecqEhfRQ)
-
+* [Pixel Peggy doing a Little Dance](https://www.twitch.tv/misspeggyx/clip/ObedientSavoryWalletCoolStoryBob-UzA5d632Xi_ii3b-)
 
 # Classic Peggy memes
 
@@ -445,11 +484,6 @@ Sort out good clips with Alfie:
 # Cake
 
 * [Says cake a bunch](https://www.twitch.tv/misspeggyx/clip/DeterminedInquisitiveCurryBCouch-_VVdR9rP8rsFYEkc)
-
-
-# ASMR
-
-* Silent Hill 2 [Mold Girl ASMR](https://www.twitch.tv/misspeggyx/clip/NaiveTangentialWatercressBCWarrior-TUQsov-6uQtW7iuN)
 
 
 # Sweet community moments!
@@ -474,11 +508,6 @@ Sort out good clips with Alfie:
 * [AM: The words "Hate"](https://clips.twitch.tv/ProudYummyMarrowKippa-GjVS61_nHwFltJga?tt_content=url&tt_medium=clips_api)
 
 
-# PISS
-
-
-
-
 # Greetings, hello, bye and generally useful clips
 
 * Silent Hill 2 [Ah + greetings](https://www.twitch.tv/misspeggyx/clip/MuddyUnusualOwlDeIlluminati-ParbGClCDa57ACoI)
@@ -495,3 +524,19 @@ Sort out good clips with Alfie:
 # TO CHECK
 
 * https://www.twitch.tv/misspeggyx/clip/ConfidentDullSalmonBabyRage-UhqxXnJmyPUpiMNQ
+
+
+
+# (To sort) Jackbox stream!!!
+
+[I SUPER-QUIPLASHED](https://www.twitch.tv/misspeggyx/clip/BlindingCourteousPuppyDendiFace-Vgs4mDxKMXd8q5Wc)
+[I ALSO WON](https://www.twitch.tv/misspeggyx/clip/BoringOutstandingCookieMcaT-X7zRPXpM3zxtQeGv)
+[RETURN OF BIMBEGGY](https://www.twitch.tv/misspeggyx/clip/CalmColdBaconPunchTrees-PQpqwyRzU3djahiX)
+[Go White Girl Go 2](https://www.twitch.tv/misspeggyx/clip/ColdZanyTireCmonBruh-41dZG0vBavxHOb53)
+[Shirt SWEEP](https://www.twitch.tv/misspeggyx/clip/HealthyPluckyWolverinePipeHype-xe5LPkylVqaxXI6z)
+
+
+
+# Ao Oni
+
+Around 3:00:00 getting stuck in a loop of deaths
