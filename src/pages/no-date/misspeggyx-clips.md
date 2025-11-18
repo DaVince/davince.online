@@ -126,6 +126,9 @@ https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPO
 * [Nani?!](https://www.twitch.tv/misspeggyx/clip/DepressedCallousMouseOptimizePrime-x-tZf1KFXH5e-ca2)
 * [Whale noises](https://discord.com/channels/1081142021944770631/1354148212172128256/1436404557772230737)
 * [Ah](https://www.twitch.tv/misspeggyx/clip/ThoughtfulToughGazelleSuperVinlin-JXOYH5z14IZFUxJL)
+* [New screeches when WE get her](https://www.twitch.tv/misspeggyx/clip/TriangularSoftWatercressCeilingCat-y6YZEZ50U07XD4pc)
+* [UwU](https://www.twitch.tv/misspeggyx/clip/BitterZealousDiamondRitzMitz-AV-YPLyB4rBsq9n9)
+* [Poison damage](https://www.twitch.tv/misspeggyx/clip/TacitHeadstrongLadiesPermaSmug-fFb1Xld3Ng_40piD)
 
 
 # Snusk moments part 3
