@@ -2,7 +2,6 @@
 
 If you happened to stumble across this page, then welcome! I collect MISSPEGGYx clips here and organize them according to various themes! When I got enough clips for a theme, they be turned into some nice edits for my [PEGGYx's Kitchen YouTube channel](https://www.youtube.com/@PEGGYsKitchen)!
 
-- [NEXT VIDEOS](#next-videos)
 - [Keep the hype train going! We're NOT letting her piss!](#keep-the-hype-train-going-were-not-letting-her-piss)
 - [Sow noises](#sow-noises)
 - [Snusk moments part 3](#snusk-moments-part-3)
@@ -37,21 +36,14 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 - [(To sort) Jackbox stream!!!](#to-sort-jackbox-stream)
 - [Ao Oni](#ao-oni)
 
-# NEXT VIDEOS
-
-- Peggy noises 2
-- For Halloween: 2 hours of distant darksow noises in the woods (ambient) (ASMR) (horror)
-- For new years: 2024 recap
-
-
 # Keep the hype train going! We're NOT letting her piss!
 
-https://www.twitch.tv/misspeggyx/clip/FastPreciousDolphinImGlitch-J2bfQFYZDQji9kER
-https://www.twitch.tv/misspeggyx/clip/HedonisticComfortableDoveUWot-eehiJDha_3lvNXFF
-https://www.twitch.tv/misspeggyx/clip/AuspiciousCoyVulturePlanking-p77KLclfnQaXqKt_
-https://www.twitch.tv/misspeggyx/clip/BigAthleticBorkSpicyBoy-eRfAaDy6KSwj25qv
-https://www.twitch.tv/misspeggyx/clip/ExuberantMoralWatermelonFrankerZ-2tCAWfm9mzuV4OfO
-https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPOv7n
+* [clip](https://www.twitch.tv/misspeggyx/clip/FastPreciousDolphinImGlitch-J2bfQFYZDQji9kER)
+* [clip](https://www.twitch.tv/misspeggyx/clip/HedonisticComfortableDoveUWot-eehiJDha_3lvNXFF)
+* [clip](https://www.twitch.tv/misspeggyx/clip/AuspiciousCoyVulturePlanking-p77KLclfnQaXqKt_)
+* [clip](https://www.twitch.tv/misspeggyx/clip/BigAthleticBorkSpicyBoy-eRfAaDy6KSwj25qv)
+* [clip](https://www.twitch.tv/misspeggyx/clip/ExuberantMoralWatermelonFrankerZ-2tCAWfm9mzuV4OfO)
+* [clip](https://www.twitch.tv/misspeggyx/clip/WonderfulLazySalmonJKanStyle-gyDl4TxNK1sPOv7n)
 
 
 # Sow noises
