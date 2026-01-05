@@ -116,11 +116,25 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [excited darksow gibbering](https://www.twitch.tv/misspeggyx/clip/LovelyEasyAyeayeSoonerLater-BHCtEOFcg9pJDTlF)
 * MiSide Part 1 1:28:46 CRAZY SQUEAK
 * [Nani?!](https://www.twitch.tv/misspeggyx/clip/DepressedCallousMouseOptimizePrime-x-tZf1KFXH5e-ca2)
-* [Whale noises](https://discord.com/channels/1081142021944770631/1354148212172128256/1436404557772230737)
 * [Ah](https://www.twitch.tv/misspeggyx/clip/ThoughtfulToughGazelleSuperVinlin-JXOYH5z14IZFUxJL)
 * [New screeches when WE get her](https://www.twitch.tv/misspeggyx/clip/TriangularSoftWatercressCeilingCat-y6YZEZ50U07XD4pc)
 * [UwU](https://www.twitch.tv/misspeggyx/clip/BitterZealousDiamondRitzMitz-AV-YPLyB4rBsq9n9)
 * [Poison damage](https://www.twitch.tv/misspeggyx/clip/TacitHeadstrongLadiesPermaSmug-fFb1Xld3Ng_40piD)
+* [10/10 bleat](https://www.twitch.tv/misspeggyx/clip/CovertColdbloodedSpindleDerp-fPt1Q6cZlTu5lcZi)
+* [low bleat?](https://www.twitch.tv/misspeggyx/clip/SolidConfidentVanillaDansGame-lM8K6EEHo2rZ0K6n)
+* [SOW ALERT](https://www.twitch.tv/misspeggyx/clip/OptimisticSarcasticDugongEagleEye-vO7ALoVAJqoHRxit)
+* ["Drowning"](https://www.twitch.tv/misspeggyx/clip/CuriousBrainySamosaGOWSkull-ujfAK7VJWCksAeso)
+* [Didgeridoo](https://www.twitch.tv/misspeggyx/clip/FlaccidFreezingDogeGrammarKing-5h_vQaC_dyxCSPTW)
+* [Goat](https://www.twitch.tv/misspeggyx/clip/KawaiiPoorJaguarItsBoshyTime-uI98jxAegLltGelj)
+* [Silent Hill screeches vs Peggy screeches](https://www.twitch.tv/misspeggyx/clip/ColdbloodedCuriousOpossumStrawBeary-V129C0_vueFhsaRk)
+* [Soft darksow screeches to fall asleep to](https://www.twitch.tv/misspeggyx/clip/SullenCheerfulPlumageBlargNaut-VHLSE-tfzUBuvMaC)
+* [Torti-yaa!](https://www.twitch.tv/misspeggyx/clip/ObliqueReliableFennelYee-86dURVvMbwy8CvRp)
+* [Random-ass moan](https://www.twitch.tv/misspeggyx/clip/MoistHungryJayNinjaGrumpy-w_sz6Mj8rOoqvniD)
+* [bark bark!](https://www.twitch.tv/misspeggyx/clip/FunnyTangibleWalletSoBayed-deMuYL1WYo6wQs5Z)
+* [Peggy EATING noises](https://www.twitch.tv/misspeggyx/clip/SmokyWiseCheddarGOWSkull-qtUvYe7ackzC136a)
+* [Mouse squeaking?](https://www.twitch.tv/misspeggyx/clip/ArtisticFaintPeafowlNerfBlueBlaster-y0_ZvWdFlFXrVDjb)
+
+NOT YET DOWNLOADED FROM HERE
 
 
 # Snusk moments part 3
@@ -242,7 +256,7 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * No, I'm Not A Human [LET ME IN LET ME IN LET ME IN](https://www.twitch.tv/misspeggyx/clip/SmallStrangeMangetoutPupper-pbrWopwkbLzV03XN)
 * [Smegma](https://www.twitch.tv/misspeggyx/clip/PrettyTamePoultryTBCheesePull-yUbMdCgoFI0riSMe)
 * Grow a Girlfriend [Magic mushroom](https://www.twitch.tv/misspeggyx/clip/FairPlumpConsoleOneHand-t5BFOJVNn2-YBPTL)
-* Grow a Girlfriend [Growing a girlfriend]()
+* ["chess a cook" (whack a cock)](https://www.twitch.tv/misspeggyx/clip/RefinedBlatantLasagnaDoritosChip-v2JFC6y2NUcM45oV)
 
 
 # Funni giftsubs/usernames
@@ -284,6 +298,9 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Don't call out my taste in games!](https://www.twitch.tv/misspeggyx/clip/AmazingCarefulRatFeelsBadMan-u-0bqEgUED1vOruG)
 * [Gimme 20cc of "wah" directly into my veins!](https://www.twitch.tv/misspeggyx/clip/SplendidTacitFalconTwitchRaid-g2LOcimANexdo443)
 * [Wowowow, pipe bomb!](https://clips.twitch.tv/PlumpGoldenDolphinGingerPower-YQuQEfVyYuahYY71?tt_content=url&tt_medium=clips_api)
+* [Sometimes the scariest thing to look at is yourself! AAAA](https://www.twitch.tv/misspeggyx/clip/ConsiderateFurtiveSoybeanRiPepperonis-4ruGBbdmZfqAD9Ia)
+* [Peggy the red-eyed Fruit Brat](https://www.twitch.tv/misspeggyx/clip/DependablePopularWolfPJSugar-R70EWiR1gMtwfRGe)
+* [Increasingly drunk Wii remote warning screens](https://www.twitch.tv/misspeggyx/clip/BlightedGiantCarabeefThunBeast-u4hJsquhEdi9RaLs)
 
 
 # Peggy Facts
@@ -486,7 +503,8 @@ Sort out good clips with Alfie:
 * Blood [SPIDER REPLACEMENT](https://www.twitch.tv/misspeggyx/clip/PowerfulFunnyLasagnaOhMyDog-SAfssVIXgWkWpew6)
 * Blood [Defeating the spider (darkling) mother boss](https://www.twitch.tv/misspeggyx/clip/AgreeableMistyNarwhalLeeroyJenkins-IGVPSLwCVyvTMi-g)
 * [SUBSCRIPTION BOMB + mic broke](https://www.twitch.tv/misspeggyx/clip/BlazingBraveMelonOSsloth-_vbfpza3JipB0Dt9?filter=clips&range=all&sort=time)
-* Sep 12 2025: My animation!
+* [CLIP the sow!!!](https://www.twitch.tv/misspeggyx/clip/WildWrongSnakeCoolCat-FRcVSU6f7rYfMP_c)
+* [sex hu unique clippers](https://www.twitch.tv/misspeggyx/clip/LitigiousWonderfulLardBIRB-9KieQ2eBdmVxAO1I)
 
 
 # Impressions & voice acting
