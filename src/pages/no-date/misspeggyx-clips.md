@@ -133,9 +133,12 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [bark bark!](https://www.twitch.tv/misspeggyx/clip/FunnyTangibleWalletSoBayed-deMuYL1WYo6wQs5Z)
 * [Peggy EATING noises](https://www.twitch.tv/misspeggyx/clip/SmokyWiseCheddarGOWSkull-qtUvYe7ackzC136a)
 * [Mouse squeaking?](https://www.twitch.tv/misspeggyx/clip/ArtisticFaintPeafowlNerfBlueBlaster-y0_ZvWdFlFXrVDjb)
+* [Her best comforting screech](https://www.twitch.tv/misspeggyx/clip/CulturedCrispyCroquetteMVGame-Ulujs5S14PJg-hfX)
+* [Sowmorse](https://www.twitch.tv/misspeggyx/clip/NeighborlyEsteemedHareChocolateRain-_fv0Gc20cplr8xrM)
 
 NOT YET DOWNLOADED FROM HERE
-
+* HL2 [Peggy gets pushed into the water by a woman](https://www.twitch.tv/misspeggyx/clip/MildTenuousPistachioKappaPride-OheBg-MBOTvJMjMu)
+* HL2 [Boating shrieks](https://www.twitch.tv/misspeggyx/clip/EnergeticFrigidDurianCopyThis-4_RqPseDPJN6NpXe)
 
 # Snusk moments part 3
 
@@ -189,6 +192,7 @@ NOT YET DOWNLOADED FROM HERE
 * Thief 2 [I'd love to voice act grunts. Not a gooner, but...](https://www.twitch.tv/misspeggyx/clip/SuaveStylishLasagnaSMOrc-viiO_g-RC-uUCwy7)
 * [Let's get railed...](https://www.twitch.tv/misspeggyx/clip/NastyBreakableMulePastaThat-QKFnZZDHZ2o1W6Uk)
 * [Noises she's never made before!](https://www.twitch.tv/misspeggyx/clip/SneakyLitigiousParrotBloodTrail-x1RmGn4wOxPC3k0Q)
+* [There's a Swede named "jerking off"](https://www.twitch.tv/misspeggyx/clip/DiligentEsteemedBaguetteRuleFive-dPzYdJ8IN4HrqNuE)
 
 
 # Chat being chat
@@ -301,6 +305,7 @@ NOT YET DOWNLOADED FROM HERE
 * [Sometimes the scariest thing to look at is yourself! AAAA](https://www.twitch.tv/misspeggyx/clip/ConsiderateFurtiveSoybeanRiPepperonis-4ruGBbdmZfqAD9Ia)
 * [Peggy the red-eyed Fruit Brat](https://www.twitch.tv/misspeggyx/clip/DependablePopularWolfPJSugar-R70EWiR1gMtwfRGe)
 * [Increasingly drunk Wii remote warning screens](https://www.twitch.tv/misspeggyx/clip/BlightedGiantCarabeefThunBeast-u4hJsquhEdi9RaLs)
+* [Peggy barks ara ara, a thing only bitches bark](https://www.twitch.tv/misspeggyx/clip/InventiveBrightSushiCoolStoryBro-f2XzSRQB4NldkUS6)
 
 
 # Peggy Facts
@@ -361,6 +366,7 @@ NOT YET DOWNLOADED FROM HERE
 * [Wide Peggy 2](https://clips.twitch.tv/GrotesqueSillyCardNerfBlueBlaster-1y1WqdQ_FKlyDzZ7?tt_content=url&tt_medium=clips_api)
 * [Bean Peggy has been hacked! 1](https://clips.twitch.tv/OptimisticKindArmadilloDatBoi-n1AeYn-sH-zZROfM?tt_content=url&tt_medium=clips_api)
 * [Bean Peggy has been hacked! 2](https://clips.twitch.tv/PrettiestPopularCrocodileTriHard-yP654aTSUAPl2j0_?tt_content=url&tt_medium=clips_api)
+* [Cute sow dance/bobbing](https://www.twitch.tv/misspeggyx/clip/SincereSuspiciousHawkDBstyle-dlL32EpjNQyQODyA)
 
 
 # Model reveals & Big Moments!
