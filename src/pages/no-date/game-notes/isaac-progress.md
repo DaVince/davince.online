@@ -15,9 +15,7 @@
 
 - Deep pockets (999 coin pocket): unlock Keeper by donating 999 coins in Greed Mode, then defeat ??? with Keeper
 - [Horse pills](https://bindingofisaacrebirth.wiki.gg/wiki/Pills#Horse_Pills): defeat Mega Satan as Tainted Eve
-- [Cracked orb](https://bindingofisaacrebirth.wiki.gg/wiki/Cracked_Orb): defeat The Beast as Eve
 - [Soul of Cain](https://bindingofisaacrebirth.wiki.gg/wiki/Soul_of_Cain): defeat Hush and Boss Rush as Tainted Cain
-- Birthright: defeat ??? as Jacob and Esau
 - https://bindingofisaacrebirth.wiki.gg/wiki/Cards_and_Runes#Reversed_Major_Arcana_Cards
 - https://bindingofisaacrebirth.wiki.gg/wiki/Hallowed_Ground
 - https://bindingofisaacrebirth.wiki.gg/wiki/Golden_Trinket
