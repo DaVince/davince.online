@@ -12,7 +12,6 @@ Make webpages in simple Markdown. Then autoconvert to HTML, rsync it to my host 
 * .env file with `DAVINCE_REMOTE_DESTINATION` environment variable pointing to the destination server + path for rsync
 * Make symlinks
   * In `src/misc`: `##/stack/Pictures/Twitch/MISSPEGGYx/my\ stuff/txt MISSPEGGYx`
-  * In `src/assets`: `##/stack/Pictures/Twitch/MISSPEGGYx/ MISSPEGGYx`
 
 ## Updating the site
 
