@@ -139,6 +139,8 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 NOT YET DOWNLOADED FROM HERE
 * HL2 [Peggy gets pushed into the water by a woman](https://www.twitch.tv/misspeggyx/clip/MildTenuousPistachioKappaPride-OheBg-MBOTvJMjMu)
 * HL2 [Boating shrieks](https://www.twitch.tv/misspeggyx/clip/EnergeticFrigidDurianCopyThis-4_RqPseDPJN6NpXe)
+* RE9 [FUCK](https://www.twitch.tv/misspeggyx/clip/CleverApatheticLousePupper-k9MR6IFwwm9cTd9p)
+* [Goat and dolphin noises](https://www.twitch.tv/misspeggyx/clip/PeppyEndearingWheelEleGiggle-bLF6C2C0Vufz_uub)
 
 # Snusk moments part 3
 
