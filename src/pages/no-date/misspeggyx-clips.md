@@ -135,12 +135,27 @@ If you happened to stumble across this page, then welcome! I collect MISSPEGGYx 
 * [Mouse squeaking?](https://www.twitch.tv/misspeggyx/clip/ArtisticFaintPeafowlNerfBlueBlaster-y0_ZvWdFlFXrVDjb)
 * [Her best comforting screech](https://www.twitch.tv/misspeggyx/clip/CulturedCrispyCroquetteMVGame-Ulujs5S14PJg-hfX)
 * [Sowmorse](https://www.twitch.tv/misspeggyx/clip/NeighborlyEsteemedHareChocolateRain-_fv0Gc20cplr8xrM)
-
-NOT YET DOWNLOADED FROM HERE
 * HL2 [Peggy gets pushed into the water by a woman](https://www.twitch.tv/misspeggyx/clip/MildTenuousPistachioKappaPride-OheBg-MBOTvJMjMu)
 * HL2 [Boating shrieks](https://www.twitch.tv/misspeggyx/clip/EnergeticFrigidDurianCopyThis-4_RqPseDPJN6NpXe)
 * RE9 [FUCK](https://www.twitch.tv/misspeggyx/clip/CleverApatheticLousePupper-k9MR6IFwwm9cTd9p)
 * [Goat and dolphin noises](https://www.twitch.tv/misspeggyx/clip/PeppyEndearingWheelEleGiggle-bLF6C2C0Vufz_uub)
+* [*Fanfare* Yaa!](https://www.twitch.tv/misspeggyx/clip/CallousPlainPidgeonKappa-muQXlVEG9j3N8GZB)
+* [Many Ahs](https://www.twitch.tv/misspeggyx/clip/PhilanthropicInnocentApeYouWHY-Ilea2X33HyJKWqHR)
+* [Cute sound at end](https://www.twitch.tv/misspeggyx/clip/PreciousSuccessfulWaspYouDontSay-XcIJ_r7ZefEzVizD)
+* [Microwave](https://www.twitch.tv/misspeggyx/clip/DeliciousHandsomeFinchCurseLit-U3i737VNv8cFBHjr)
+* [Bark](https://www.twitch.tv/misspeggyx/clip/ObliqueLivelyWoodcockPanicBasket-keVLJ84_Xnb_ipxj)
+* [SNUSK!](https://clips.twitch.tv/create/SpoopyDifferentSardineFrankerZ-DHy072-SP1cbZ-30)
+* [Yaaaa!](https://www.twitch.tv/misspeggyx/clip/RelatedLazyMinkImGlitch-b1oVrm_wzzc4Jpvk)
+* [Yaa + vacuum noises](https://www.twitch.tv/misspeggyx/clip/TriumphantAwkwardKathyTBTacoLeft-T34IoUqRZeFo6goJ)
+
+NOT YET DOWNLOADED FROM HERE:
+
+* [SCREETCH](https://www.twitch.tv/misspeggyx/clip/TawdryAgileQuailGrammarKing-RU13LnYYglyNwiUy)
+* [Ah! And reluctant shower brat sounds](https://www.twitch.tv/misspeggyx/clip/YawningHomelyAlmondLitFam-ZTaUtxPSZAzKsKtu)
+* [Honk shoo](https://www.twitch.tv/misspeggyx/clip/LitigiousViscousSharkGOWSkull-Wd8OmZX86dCiMu9H)
+* [Penguin? noises](https://www.twitch.tv/misspeggyx/clip/ProductiveFuriousFlyJebaited-AH3F66OU3lczmLI7)
+* [Screeching after the penguin leans the Sex word](https://www.twitch.tv/misspeggyx/clip/SavoryDepressedGrasshopperSoBayed-1NoXXO6zcL4z8CJu)
+
 
 # Snusk moments part 3
 
@@ -195,6 +210,11 @@ NOT YET DOWNLOADED FROM HERE
 * [Let's get railed...](https://www.twitch.tv/misspeggyx/clip/NastyBreakableMulePastaThat-QKFnZZDHZ2o1W6Uk)
 * [Noises she's never made before!](https://www.twitch.tv/misspeggyx/clip/SneakyLitigiousParrotBloodTrail-x1RmGn4wOxPC3k0Q)
 * [There's a Swede named "jerking off"](https://www.twitch.tv/misspeggyx/clip/DiligentEsteemedBaguetteRuleFive-dPzYdJ8IN4HrqNuE)
+* [Testicular Torsion Crank](https://www.twitch.tv/misspeggyx/clip/BlatantLightLatteKeepo-EthCwJplMVPheSy2)
+* [P-Woman](https://www.twitch.tv/misspeggyx/clip/PlumpPrettyIcecreamKAPOW-02XkI9NdMMaCTjH4)
+* Moments from Trees Hate You
+* [H Reactors - They only watch hent](https://www.twitch.tv/misspeggyx/clip/LitigiousYummyPoxTBTacoRight-8Jc_RcIf89GhXkCz)
+* [Negative numbers](https://www.twitch.tv/misspeggyx/clip/WonderfulInexpensiveVultureNononoCat-gqSCOhYKxizrbOZI)
 
 
 # Chat being chat

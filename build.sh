@@ -7,9 +7,9 @@ echo "==============================="
 echo "Copying over files to dist."
 cp -R src dist
 
-echo "==============================="
-echo "Compiling TypeScript files."
-tsc
+# echo "==============================="
+# echo "Compiling TypeScript files."
+# tsc
 
 cd dist
 
