@@ -1,5 +1,6 @@
-tools/
 dist/
+games/
+tools/
 .env
 
 src/peggyx-recap-2024/**/*.png
